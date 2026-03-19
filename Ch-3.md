@@ -196,6 +196,6 @@ His companions exchanged yet another glance. He took out his wallet and set two 
 
 ‘You expect me to send my daughter half way across the country, just like that? Who even is this Travis Hanlon?’ McCoy smiled, actually smiled.
 
-‘He is my best friend. We have been to hell and back together and I’d rather have no one else at my back.’ Another kick under the table. ‘Apart from Rita, she comes first.’ He said cowering sheepishly, grinning at his partner like he was daring her. He set two more bills on the table. ‘Go and see for yourself. You can tell him I asked nicely that he is a perfect gentleman.’
+‘He is my best friend. We have been to hell and back together and I’d rather have no one else at my back.’ Another kick under the table. ‘Apart from , she comes first.’ He said cowering sheepishly, grinning at his partner like he was daring her. He set two more bills on the table. ‘Go and see for yourself. You can tell him I asked nicely that he is a perfect gentleman.’
 
 And so we went.
