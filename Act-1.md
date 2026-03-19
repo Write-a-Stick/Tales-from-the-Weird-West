@@ -409,13 +409,13 @@ Dad poured a glass from the bedside table pitcher and handed it to me, supportin
 
 ‘I am sorry, Dad. I wasn’t thinking.’ I hugged him and held on. Feels like home. Feels like safety.
 
-‘Shhhhhh… It’s alright… You just didn’t know.’ I started to protest.’ Shhhhhhh…It’s okay…’
+‘Shhhhhh… It’s alright… You just didn’t know.’ I tried to protest.’ Shhhhhhh…It’s okay…’
 
 We sat there for a while as I was calming down, then I realized that both Dad and I were in my room, the bar unattended. I was tired, but not tired enough to not care.
 
 ‘Wait, who’s downstairs, tending the bar?’ I immediately asked, alarmed.
 
-‘McCoy and a couple of his friends, actually. Do you remember Miss O’Donnel from 204? And that young black gentleman, Jim from 206?’
+‘McCoy and a couple of his friends, actually. Do you remember Miss Ellison from 204? And that young black gentleman, Jim from 206?’
 
 ‘Yes? Them? They are the most normal guests we have.’ I started. Then the penny dropped. ‘Do you trust them?’ I asked, incredulous. He didn’t even think for a moment.
 
@@ -431,11 +431,11 @@ On reaching the second floor gallery, I glanced down to see what was going on. D
 
 It was high time I figured out what was really happening. I had questions. I took the stairs down, hugged Dad and walked to McCoy’s table. As I was closing the short distance, three pairs of piercing eyes watched me. It was eerie, and felt like they were looking at my soul. 
 
-Miss O’Donnell, unlike her usual, was wearing a flashy wine coloured dress, a bit asian in style, with silvery flower patterns tastefully sprinkled thoughout. It had a big cleavage and a split up to mid-thigh. Normally, it would be vulgar, but she somehow made it look dignified and powerful. Raven black hair flowed down her shoulders and framed her features, makeup and silver jewellery discreetly highlighting the ensemble. 
+Miss Ellison, unlike her usual, was wearing a flashy wine coloured dress, a bit asian in style, with silvery flower patterns tastefully sprinkled thoughout. It had a big cleavage and a split up to mid-thigh. Normally, it would be vulgar, but she somehow made it look dignified and powerful. Raven black hair flowed down her shoulders and framed her features, makeup and silver jewellery discreetly highlighting the ensemble. 
 
 Jim was wearing a black suit and crisp white shirt, instead of his usual trousers, suspenders and worn flannel. Clean and simple. 
 
-McCoy in his usual, which suprisingly tastefully matched Miss O’Donnell’s colours. _Ah._
+McCoy in his usual, which suprisingly tastefully matched Miss Ellison’s colours. _Ah._
 
 McCoy extended a hand and moved a chair for me to sit. 
 
@@ -443,7 +443,7 @@ McCoy extended a hand and moved a chair for me to sit.
 
 ‘Many. Emma Coates, a pleasure to meet you both.’ With all the reassessments I had to make, it felt natural to reintroduce myself.
 
-‘Rita O’Donnell, likewise.’ She smiled and extended a graceful hand, which I shook.
+‘Hannah Ellison, likewise.’ She smiled and extended a graceful hand, which I shook.
 
 ‘Jim dus’ Quirrel. Nice to meet you, Emma.’ He switched to first names naturally. I guess the time for formalities was over.
 
@@ -455,7 +455,7 @@ The other three leaned in. A moment later Dad was standing behind me, hands on t
 
 ‘I want to know too.’ He said with determination. 
 
-Nods from around the table. Unexpectedly, Miss O’Donnel answered.
+Nods from around the table. Unexpectedly, Miss Ellison answered.
 
 ‘It’s called the Twitch. It’s the moment you saw too much to unsee, forget and rationalize. It’s always dangerous, especially so if unsupervised. I would know. You were very lucky you had someone to stop you.’ 
 
@@ -479,11 +479,11 @@ _This man can be vicious when he wants to._
 
 He looked at me seriously, and glanced up at Dad. 
 
-‘I want you to go to Tucson, Arizona, and find a man named Franklin Parson. He has experience with this sort of thing. He will be able to help you, if you only explain it to him right. Just, maybe don’t listen to anything he says right after.’ 
+‘I want you to go to Tucson, Arizona, and find a man named Travis Hanlon. He has experience with this sort of thing. He will be able to help you, if you only explain it to him right. Just, maybe don’t listen to anything he says right after.’ 
 
 His companions exchanged yet another glance. He took out his wallet and set two crisp $100 bills on the table. This is when Dad made his objections known.
 
-‘You expect me to send my daughter half way across the country, just like that? Who even is this Franklin Parson?’ McCoy smiled, actually smiled.
+‘You expect me to send my daughter half way across the country, just like that? Who even is this Travis Hanlon?’ McCoy smiled, actually smiled.
 
 ‘He is my best friend. We have been to hell and back together and I’d rather have no one else at my back.’ Another kick under the table. ‘Apart from Rita, she comes first.’ He said cowering sheepishly, grinning at his partner like he was daring her. He set two more bills on the table. ‘Go and see for yourself. You can tell him I asked nicely that he is a perfect gentleman.’
 
@@ -550,15 +550,15 @@ Odd is normal now.
 
 Dad leaned on the bar next to me, watching and not interrupting. Which was curious, normally he is very protective of me. Still, his presence gave me confidence.
 
-‘I’m looking for Mr Parson.’
+‘I’m looking for Mr Hanlon.’
 
 ‘Who?’
 
-‘Mr Franklin Parson.’
+‘Mr Travis Hanlon.’
 
 ‘He a friend of yours?’ This felt very much like an interrogation. Dad then turned to face the bartender.
 
-‘Friend of a friend. One who is asking politely that Mr Parson be a perfect gentleman’. He said.
+‘Friend of a friend. One who is asking politely that Mr Hanlon be a perfect gentleman’. He said.
 
 ‘That friend got a name?’ Their eyebrows were having a separate conversation altogether, but I was never quite fluent in browish.
 
@@ -574,7 +574,7 @@ What sort of insanity is Decker McCoy is up to for these people to react this wa
 
 We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whisky.
 
-‘Franklin J. Parson, definitely not pleased to make your acquaintance. ’ _Rude._
+‘Travis J. Hanlon, definitely not pleased to make your acquaintance. ’ _Rude._
 
 ‘I don’t care.’ _Liar._
 
@@ -586,7 +586,7 @@ We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whis
 
 ‘I know, it’s funny.’ He straightened himself. 
 
-‘I am sorry. You didn’t deserve this. I’ve just had it up to here with McCoy dumping his problems on me.’ He relaxed onto the backrest, took a swig of whisky. ‘I apologize for my behaviour. Franklin Parson, pleased to meet you, Miss…’ 
+‘I am sorry. You didn’t deserve this. I’ve just had it up to here with McCoy dumping his problems on me.’ He relaxed onto the backrest, took a swig of whisky. ‘I apologize for my behaviour. Travis Hanlon, pleased to meet you, Miss…’ 
 
 ‘Emma Coates. Likewise.’ We shake hands.
 
@@ -598,9 +598,9 @@ We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whis
 
 ‘Not sure myself Dad, but I think we’re ready to talk?’ I glanced around, they both nodded. 
 
-‘You seem to know Mr McCoy quite well, Mr Parson-’ I start.
+‘You seem to know Mr McCoy quite well, Mr Hanlon-’ I start.
 
-‘Just Franklin to both of you.’ I smiled and nodded, he seemed sincere. ‘As for McCoy, yes. I know him, like you know the weather. It exists, does its thing and leaves you knee deep in mud whenever it feels like it. How did he happen to you?’
+‘Just Travis to both of you.’ I smiled and nodded, he seemed sincere. ‘As for McCoy, yes. I know him, like you know the weather. It exists, does its thing and leaves you knee deep in mud whenever it feels like it. How did he happen to you?’
 
 I swallowed. I didn’t think about it much after. Actually, not at all. The memory of the pain returned as soon as I thought about it. Just a flash, but enough. I breathed a long breath to settle.
 
@@ -614,9 +614,9 @@ I swallowed. I didn’t think about it much after. Actually, not at all. The mem
 
 ‘Et tu, Rita? ‘ Latin, I think. ‘They send me a natural. Right. How much did they tell you?’
 
-‘Practically nothing, they all were very cryptic.’ Franklin sighed.
+‘Practically nothing, they all were very cryptic.’ Travis sighed.
 
-‘Of course. Send her in raw. Ok, Miss Coates, I need you to listen very carefully. I need you to not get angry. At anything. At all. You will have to learn to control yourself very tightly, very quickly.’ I held onto Dad’s hand. Franklin continued, just laying it on me heavy.
+‘Of course. Send her in raw. Ok, Miss Coates, I need you to listen very carefully. I need you to not get angry. At anything. At all. You will have to learn to control yourself very tightly, very quickly.’ I held onto Dad’s hand. Travis continued, just laying it on me heavy.
 
 ‘You are no longer in danger from yourself, Decker took care of that. Others are. With power comes responsibility, and in your case, it comes instantly.‘ He eased his expression and tone. 
 
@@ -655,7 +655,7 @@ It was hard to focus. But I could anchor on the voice.
 
 I opened my eyes. Dad was still there, but I wasn’t afraid anymore, for now. I could think.
 
-‘What’s wrong with him?’ The most important question. Franklin sighed and smiled sadly.
+‘What’s wrong with him?’ The most important question. Travis sighed and smiled sadly.
 
 ‘He’s adjusting, his mind couldn’t take it all. By the time he wakes up, he will explain away everything that doesn’t fit for him.’
 
@@ -693,13 +693,13 @@ I watched in silence, counting seconds. Counting helped. As soon as Dad opened h
 
 ‘I’ll get some coffee, I’ll tell you once I’m back.’ I didn’t lie. I got out quickly, just to see a well dressed man sitting in a chair right outside. He immediately stood up and grabbed what looked like a doctor’s bag.
 
-‘Doctor Jacob Lashings, I’m here to see your father, Miss Coates.’ Oh, yes. They told me they’ll send a doctor. I nodded, and backed up, opening the door again. Dad was getting dressed. 
+‘Doctor Roscoe Endaway, I’m here to see your father, Miss Coates.’ Oh, yes. They told me they’ll send a doctor. I nodded, and backed up, opening the door again. Dad was getting dressed. 
 
 ‘Dad, the doctor is here to see you.’ I saw his confusion.
 
-‘Doctor? I’m feeling good. I was just sleeping.’ Luckily, Dr Lashings  knew his craft.
+‘Doctor? I’m feeling good. I was just sleeping.’ Luckily, Dr Endaway knew his craft.
 
-‘Doctor Lashings, at your service. It’s good that you’re feeling well, it promises good things after head trauma. You hit your head quite hard. I will let you get dressed.’ 
+‘Doctor Endaway, at your service. It’s good that you’re feeling well, it promises good things after head trauma. You hit your head quite hard. I will let you get dressed.’ 
 
 He sounded professionally soothing while lying through his teeth. This was my moment. Time to think. 
 
@@ -745,7 +745,7 @@ Now that I knew Dad is going to be fine and himself, I had questions. So I went 
 
 ‘Emma.’
 
-‘Franklin. I have questions.’ He nodded.
+‘Travis. I have questions.’ He nodded.
 
 ‘Of course you do. I will answer three.’ I wanted to punch this man.
 
@@ -919,7 +919,7 @@ I nodded.
 
 A while later, just as I was starting to feel the alcohol, guess who strode in. Surprisingly, Decker dropped most of his flourish after one glance at the bar. He propped himself sideways and gave my shoulder a tap and a comforting squeeze. Two more glasses appeared on the bar, followed by the last remaining person I knew in this town.
 
-‘I take it your father went back?’ Franklin finally asks.
+‘I take it your father went back?’ Travis finally asks.
 
 ‘Yes... we’re having a drink in his honour.’
 
@@ -933,7 +933,7 @@ He and Decker exchanged glances. Bonnie nodded silently.
 
 ‘It didn’t work. He is strong and has his heart in the right place. He made me be honest.’
 
-‘The real McCoy?’ Nod. ‘Poor man.’ Franklin raised his glass. 
+‘The real McCoy?’ Nod. ‘Poor man.’ Travis raised his glass. 
 
 ‘I’ll owe you one as long as you keep it between us.’ Decker raised his and looked at me.
 
