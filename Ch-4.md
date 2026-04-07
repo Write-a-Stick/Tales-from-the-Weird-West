@@ -1,9 +1,9 @@
 <center>----------<br>
 <h3>Chapter Four</h3>
-<h3>Sometimes, what you need is booze</h3>
+<h3>Friends of friends?</h3>
 </center>
 
-The  cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you travelled at their base. Towns, flatlands, deserts, it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
+The cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you travelled at their base. Towns, flatlands, deserts, it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
 
 Thinking about it reminded me yet again of The Principal. It was home, and it was very far away now. We shut the doors, hired a guard and posted notice that we would reopen in two weeks. It felt like betrayal, somehow. Just as I was considering if The Principal could have feelings, our destination came into view ahead.
 
@@ -81,7 +81,7 @@ True to her word, not long after a man came out of the same door. Around thirty,
 
 What sort of insanity is Decker McCoy is up to for these people to react this way?
 
-We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whisky.
+We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whisky. The man took out and shuffled a deck of cards one-handed in a practiced, habitual motion. Didn't look at it once.
 
 ‘Travis J. Hanlon, definitely not pleased to make your acquaintance. ’ _Rude._
 
@@ -113,7 +113,7 @@ We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whis
 
 I swallowed. I didn’t think about it much after. Actually, not at all. The memory of the pain returned as soon as I thought about it. Just a flash, but enough. I breathed a long breath to settle.
 
-‘Well… Miss O’Donnell called it a Twitch.’ His face went long. He took a long drink. 
+‘Well… Miss Ellison called it a Twitch.’ His face went long. He took a long drink. 
 
 ‘Have you made any deals with suspicious individuals recently? Cryptic, but nice? Perhaps in your dreams? Signed a contract of any kind?’ He queried.
 
@@ -180,4 +180,6 @@ I felt tears well up in my eyes.
 
 …Out.’
 
-_I love you Dad._
+<center>
+<h4><i>I love you Dad.</i></h4>
+</center>

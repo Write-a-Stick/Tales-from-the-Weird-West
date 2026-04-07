@@ -102,7 +102,7 @@ I went about my duties, and not long after, McCoy came in with the raven perched
 
 ‘I am sorry, Mr McCoy, but we do not allow animals in here.’ McCoy looked like he took serious offence. 
 
-‘Oh really?’ He replied with the most condescending drawl imaginable. Other guests took interest now, too. Miss O’Donnell from 204 cast a particularly withering side-eye.
+‘Oh really?’ He replied with the most condescending drawl imaginable. Other guests took interest now, too. Miss Ellison from 204 cast a particularly withering side-eye.
 
 ‘Corvus is not an animal, he is a paying customer.’ 
 

@@ -11,7 +11,7 @@ I desperately needed water, so I sat up in the bed and looked around the unfamil
 
 I had a vague memory of someone mentioning a house attached to Utopia, I figured it was where I found myself. I was, most likely, in a guest room. Pretty well appointed, the furniture was good quality and pretty new. 
 
-Then I noticed You Bastard, perched on the chair. He had one eye open, the reflections off my glass must have woken him.
+Then I noticed You Bastard, perched on the chair. He had one eye open, the morning sun's reflections off my glass must have woken him.
 
 You Bastard is a rooster.  
 It was morning.  
@@ -23,7 +23,7 @@ _Oh no._
 
 'Cadaa...'
 
-What you need to understand about You Bastard is that on Mondays... he crows differently. Somehow, it is much, much worse than the other days.
+What you need to understand about You Bastard is that on Mondays... he crows different. Somehow, it is much, much worse than the other days.
 
 _I hate Mondays_
 
@@ -47,7 +47,7 @@ Then we both noticed that the lightning only slightly singed his foot. His beady
 
 'BWAAAAAAAAAAAAK!'
 
-I dashed for the door, my stomach protesting at the rapid movement. I could hear You Bastard launching himself after me. I shut the door just in time to hear him scratch and peck at the door. He was always a feisty one.
+I dashed for the door, my head and stomach protesting every movement. I could hear You Bastard launching himself after me. I shut the door just in time to hear him scratch and peck at the door. He was always a feisty one.
 
 'I'm sorry, OK? I didn't know it was going to happen!' I tried explaining to the door.
 
@@ -58,6 +58,10 @@ I dashed for the door, my stomach protesting at the rapid movement. I could hear
 'Cabwaak...' I couldn't believe I was negotiating with a chicken. Which I technically owned. And it was my pet, not the other way around.
 
 'Cabwaak! Bock Bock!' That sounded like an agreement.
+
+I leaned on the wall and looked at my hands.
+
+_I did magic! It's real! And I can do it!_
 
 This was the moment another door in the hall opened and a head peeked out. It was a boy, around ten, round faced, with blond hair sticking out in every direction. He looked a bit sleepy as he came towards me.
 
@@ -91,7 +95,7 @@ It wasn't a stash of snacks... It was enough food for those two for a week...
 
 He quietly took out a tin of hard candy, opened it and offered me some. I took one and put it in my mouth, even though sweets this early in the morning and in the state I as in weren't the best idea. What else was I going to do though?
 
-'I don't suppose you have a bit of bread? I promised some to my rooster, I need to placate him. He is a bit miffed.' I smiled apologetically.
+'I don't suppose you have a bit of bread? I promised some to my rooster, I need to bribe him. He is a bit miffed.' I smiled apologetically.
 
 'I do!' Robbie brightened up and took out two large crackers from one of the waxed packets.
 
@@ -106,6 +110,8 @@ Cautiously, I slid one of the crackers under the door. It was immediately oblite
 I cracked the door open, searching for any sign of the poultry menace that was You Bastard. I found him perched on the chair non-threateningly, eyes closed. 
 
 It was safe to go back to bed. And I was in no state to ponder anything just yet.
+
+_But magic!_
 
 <center>----------</center><br>
 
@@ -145,4 +151,54 @@ And then the laugh died on my lips...
 _Hold up... Is that what I look like when Dad calls me "Daughter Mine"?_
 
 The irony wasn't lost on me.
+
+'Yes, right after You Bastard decided I slept too long... And, uh... sorry about the noise.'
+
+'Don't worry, it was hysterical.' He grinned.
+
+'No it wasn't!' Tiffany chimed in. 'She woke both me and Robbie at the break of dawn...'
+
+'Yes, sorry about that...' I said and turned to Robbie. 'Thanks for the bread earlier, I managed to placate You Bastard with it.'
+
+I could see Decker and Travis exchange glances just as I said it. Then they laughed like the maniacs they were.
+
+'What happened, O Whisperer of Poultry?' Decker asked as soon as he regained a semblance of sanity. 
+
+I wanted to throw a mug at him, but they were good quality and pretty, it would have been a shame to ruin them. Instead, I told them of the morning events. Nobody interrupted, just Robbie was vibrating with excitement at the mention of lightning.
+
+'Tiffany can do lightning too!' He said and I looked at Tiffany in a new light.
+
+'You can?' I asked.
+
+_So much for feeling unique, but I'll take it, it's still magic._
+
+She glanced at the men, and there was an almost imperceptible nod.
+
+'Well, kind of. I can influence the weather, and the more I do at any given time, my control increases. Travis says it also increases the danger... So yeah.'
+
+This is where Decker chimed in.
+
+'I am what you call a Shaman, a priest of nature. I guess in the Old World they would have called us Druids? My power is not mine, I just hold it.'
+
+Then it was Travis's turn.
+
+'I am a Huckster, I made a deal, a big deal, for the only thing that matters. My soul. I used to be young too, once.' He sighed and smiled sadly.
+
+'I see. Thank you' I didn't interrupt, these were two talking freely without riddles. I wondered if I should mark the occasion in my calendar.
+
+'Wait, you two were infuriatingly vague about explanations and now we're discussing it freely? Why is that?'
+
+This group of people was way too fond of exchanging knowing glances. 
+
+'Tradition. You don't discuss it with those who do not have their own. And now we know for sure.'
+
+'How? You only heard me shout? And what sort of stupid tradition is it?'
+
+'We have ways, we felt the magic happen. It's not stupid. Remember what happened to your Dad? How he forgot?'
+
+I nodded, feeling a chill run down my spine.
+
+'That can happen to any of us too. It's rare, but it's worse. Regular folks just adjust. We get Scoured. Imagine forgetting everything that has to do with our world. And then forgetting everything that could remind you of any of it. There is no way back. Your mind breaks, you are gone.'
+
+'Fine, it's all dangerous, I understand. You keep talking about the dangers, but I want to know what I am too! Is this finally the time you tell me what my magic is about?' 
 

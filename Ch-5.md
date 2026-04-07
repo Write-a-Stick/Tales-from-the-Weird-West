@@ -1,6 +1,6 @@
 <center>----------<br>
 <h3>Chapter Five</h3>
-<h3>Where have I heard that before</h3>
+<h3>Where truth lies</h3>
 </center>
 
 I couldn’t sleep. Not with Dad like that. At least I learned to breathe. It helps. I can think. He is sleeping now, chest rising and dropping regularly. I hope he will pull through. I know he will. He must. 
