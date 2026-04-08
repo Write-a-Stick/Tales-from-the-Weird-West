@@ -2,6 +2,7 @@
 
 <center>
 <h1>Tales from the Weird West</h1>
+</center>
 
 
 //CHAPTER
