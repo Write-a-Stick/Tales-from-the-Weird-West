@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Three</h3>
 <h3>They say knowledge is power</h3>
 </center>
