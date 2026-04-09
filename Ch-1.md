@@ -130,6 +130,8 @@ Coming in from the cold outside, he also wore a wine coloured long coat and a bl
 
 Yet the most obnoxious item was the half-cape he wore over his right shoulder and included in some of his most theatrical gestures. It was white in black patterned zigzags going down its length. When you watched it move, it did weird things to your eyes. Kind of attracting and distracting at the same time.
 
+<img title="Dandyman" alt="Flashy McCoy in the door" src=".\img\McCoy.png">
+
 With that, Decker McCoy and his raven became a semi-permanent fixture in The Principal, for a time. He would go about his business for most of the day. When here, he maintained a likeable, if mischievous, attitude. He talked, he bought drinks, he gambled and he bragged. He told stories of the Weird West, of magic and monsters. They were just as entertaining as they were outlandish, at least when I had the time to listen. The raven was well behaved and clean. 
 
 Dad and I quickly got used to his habits and oddities, all in all he wasn’t too troublesome. The more you listened and watched, the more you noticed he was just an eccentric full of hot air and a glorified sense of self importance. Loud, but ultimately irrelevant and insignificant in the grand scheme of things. 
