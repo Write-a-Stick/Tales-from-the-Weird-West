@@ -18,6 +18,8 @@ I finally wrangled my hair into a ponytail, leaving thin strands to frame my fac
 
 Quickly I got dressed and went downstairs, gave the bar and common room a glance, trying to gauge how much cleaning was left over from yesterday. Not too bad, I could deal with the inevitable mess in the gallery later. I put on my overcoat, grabbed the bucket and went to get water from the well.
 
+<img title="Emma" alt="Emma goes to get water" src=".\img\Emma.png">
+
 Having exited via the back door, I saw an unusual-looking man. A tall man, worn, unkempt and tired. He was dressed in high quality clothes and hat, embroidery and all. Or, at least they used to be good quality - now they shared their state with their owner. Dirty, singed at the edges and torn. They would have been appropriate for the warm, sunny weather. Which we, obviously, didn't have. I could smell a slight burning and something else, even through the cold. Then the wind changed and my eyes watered.
 
 ‘Well howdy there, Miss’ - he said in a tone fit for a dandy socialite. Somehow I expected him to sound like he drank too much whisky and gargled gravel every morning. 
@@ -130,7 +132,7 @@ Coming in from the cold outside, he also wore a wine coloured long coat and a bl
 
 Yet the most obnoxious item was the half-cape he wore over his right shoulder and included in some of his most theatrical gestures. It was white in black patterned zigzags going down its length. When you watched it move, it did weird things to your eyes. Kind of attracting and distracting at the same time.
 
-<img title="Dandyman" alt="Flashy McCoy in the door" src=".\img\McCoy.png">
+<img title="Dandyman" alt="Flashy McCoy at the door" src=".\img\McCoy.png">
 
 With that, Decker McCoy and his raven became a semi-permanent fixture in The Principal, for a time. He would go about his business for most of the day. When here, he maintained a likeable, if mischievous, attitude. He talked, he bought drinks, he gambled and he bragged. He told stories of the Weird West, of magic and monsters. They were just as entertaining as they were outlandish, at least when I had the time to listen. The raven was well behaved and clean. 
 

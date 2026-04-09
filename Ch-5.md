@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Five</h3>
 <h3>Where truth lies</h3>
 </center>

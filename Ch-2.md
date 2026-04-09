@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Two</h3>
 <h3>I didn’t see it staring</h3>
 </center>

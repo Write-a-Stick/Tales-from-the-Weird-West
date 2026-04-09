@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Six</h3>
 <h3>Not the same, but just the right shape</h3>
 </center>

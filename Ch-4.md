@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Four</h3>
 <h3>Friends of friends?</h3>
 </center>

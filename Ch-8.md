@@ -1,4 +1,4 @@
-<center>----------<br>
+<center>
 <h3>Chapter Eight</h3>
 <h3>The rainbow you don't expect</h3>
 </center>
