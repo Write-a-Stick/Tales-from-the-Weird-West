@@ -3,10 +3,6 @@
 <h3>Open hands. Empty hands.</h3>
 </center>
 
-
-
-<center>----------</center><br>
-
 ‘Cockadoo… Cockadoo!’
 
 I sat bolt upright in the bed. I wasn't hung over, but like hell was I going to put up with that at the break of dawn.
