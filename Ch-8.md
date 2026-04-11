@@ -5,7 +5,7 @@
 
 The house had a study, exactly like you would imagine it. Fireplace, four leather armchairs and wooden bookshelves lining every wall. Add a pair of floor-to-ceiling windows, and because Travis lived here, several crystal decanters with an assortment of glasses on a wheeled table.
 
-I didn't have time to peruse the book selection before we sat down, but it looked promising. We all took a chair, apart from Robbie, who snuggled in Tiffany's lap.
+I didn't have time to peruse the book selection before we sat down, but it looked promising. We all took a chair, apart from Robbie, who snuggled in Tiffany's lap. 
 
 The lecture was brief, but thorough. Sort of a primer to the supernatural. Travis took the lead.
 
@@ -67,7 +67,7 @@ He locked eyes with me.
 
 'You better be sure. Every. Single. time.'
 
-This was suspiciously deep for McCoy. Personal. I decided to remember it.
+This was suspiciously deep for McCoy. Sounded personal, too. 
 
 'Just remember that sometimes what you want, what is right and what you have to do can be four different things.' Travis said grimly.
 

@@ -184,7 +184,17 @@ Then it was Travis's turn.
 
 'I am a Huckster, I made a deal, a big deal, for the only thing that matters. My soul. I used to be young too, once.' He sighed and smiled sadly.
 
-'I see. Thank you' I didn't interrupt, these were two talking freely without riddles. I wondered if I should mark the occasion in my calendar.
+'Me! Me! Me!' Robbie piped up. 'I find useful things!'
+
+'He does!' Decker laughed. 'We once went out and I forgot both my key and lockpicks, and Robbie had just the right kind of wire he was playing with.'
+
+'Remember when we needed that special plant for one of your medicines? And Robbie happened to gather a handful of the flowers earlier? What were they called again?'
+
+'Oh yeah, the Wolfsbane...'
+
+Robbie visibly brightened at the praise, and he was adorable.
+
+'I see. Thank you.' I didn't interrupt, these were two talking freely without riddles. I wondered if I should mark the occasion in my calendar.
 
 'Wait, you two were infuriatingly vague about explanations and now we're discussing it freely? Why is that?'
 

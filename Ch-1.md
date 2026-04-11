@@ -64,7 +64,7 @@ The effect was ruined somewhat by the spare clothes we loaned him. Just a little
 
 None of it stopped him from strutting into the common room, like he owned the place. Gone was any semblance of humility and the obnoxious dandy I heard to begin with, returned in full force. The few guests that were down from their rooms, mostly ignored it. I, however, could not, so I braced myself for another annoying rich customer - as unorthodox as his turning up here was. 
 
-He sat at a table and I waited on the inevitable click of the fingers, _you know the one_ - the one that is supposed to remind you that you are there to serve, and that the clicker is there to be served.
+He sat at a table and I waited on the inevitable click of the fingers, you know the one - the one that is supposed to remind you that you are there to serve, and that the clicker is there to be served.
 
 ‘Excuse me, Miss, can I get that breakfast now?’ He said politely. Was I misjudging him?
 
