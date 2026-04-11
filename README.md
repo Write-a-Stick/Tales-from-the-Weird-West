@@ -15,7 +15,7 @@ Emma was content helping her dad run their ordinary little inn - at least until 
 
     1. I write for fun. I am not making money off it. Feel free to share it, but please do not steal. Pretty please?
 
-    2. Images are AI, because I the best I can do is a stickman. If I ever manage to sell my work, I will pay a real artist to do it right.
+    2. Images are AI, because the best I can do is a stickman. If I ever manage to sell my work, I will pay a real artist to do it right.
 
     3. I used AI as an editor and bouncing board, but all ideas and writing are mine alone. Mostly, read point 4.
     

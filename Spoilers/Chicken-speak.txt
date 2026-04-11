@@ -1,0 +1,9 @@
+Bwaaak = Hello / Good
+
+Cabwaak = Huh?What?
+
+Pock = Feeling
+
+BWAAAK! = Attack! / Bad!
+
+Bock bock! = OK! / Yes
