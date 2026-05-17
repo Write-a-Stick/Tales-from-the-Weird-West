@@ -3,19 +3,15 @@
 <h3>Open hands. Empty hands.</h3>
 </center>
 
-
-
-<center>----------</center><br>
-
 ‘Cockadoo… Cockadoo!’
 
 I sat bolt upright in the bed. I wasn't hung over, but like hell was I going to put up with that at the break of dawn.
 
 'No! Be quiet!' I pointed a finger at him, sitting on the windowsill, ready to crow.
 
-_I guess that's what you call a Mexican Standoff..._
-
 I threatened him with puny lightning and he held my ears hostage.
+
+_Not quite a Mexican Standoff._
 
 'How about you be quiet and I give you some food?' I tried, and slowly got up from the bed.
 
@@ -35,7 +31,7 @@ She didn't look very happy to see me.
 
 I moved in quickly, trying to find something interesting and leave. There was a full shelf of The Merry Bunch, with a few I haven't read yet. Easy choice.
 
-'You like them too, huh?' The storm cloud that was Tiffany's face, brightened up a bit.
+'You like them too, huh?' The storm cloud that was Tiffany's face brightened up a bit.
 
 'It's my favourite light read, even though Dad says they're silly.'
 

@@ -138,7 +138,7 @@ With that, Decker McCoy and his raven became a semi-permanent fixture in The Pri
 
 Dad and I quickly got used to his habits and oddities, all in all he wasn’t too troublesome. The more you listened and watched, the more you noticed he was just an eccentric full of hot air and a glorified sense of self importance. Loud, but ultimately irrelevant and insignificant in the grand scheme of things. 
 
-Yet somehow, I couldn’t help feeling there wass more to the man. I just couldn’t see it. I was going to find some redeeming quality, it became my mission. 
+Yet somehow, I couldn’t help feeling there was more to the man. I just couldn’t see it. I was going to find some redeeming quality, it became my mission. 
 <center>
 <h4><i>Nobody can be this shallow.</i></h4>
 </center>

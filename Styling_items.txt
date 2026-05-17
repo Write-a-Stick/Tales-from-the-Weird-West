@@ -7,7 +7,7 @@
 
 //CHAPTER
 
-<center>----------<br>
+<center>
 <h3>Chapter Number</h3>
 <h3>Witty Chapter Title</h3>
 </center>
