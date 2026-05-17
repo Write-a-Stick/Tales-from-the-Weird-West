@@ -37,7 +37,7 @@ I knew it was coming and I couldn't let it just happen. In an act of painful def
 
 'I HAAATE MONDAAAYS!!!
 
-The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my ourstretched hand, a small lightning connected with You Bastard.
+The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a small lightning connected with You Bastard.
 
 _Holy Crap! I did magic!_
 
@@ -89,11 +89,11 @@ It was similar to the one I woke up in, except that the bed was a bunk bed, the 
 
 I mouthed a 'Sorry!' and started to back up. 
 
-'Wait!' Timmy opened the bottom drawer of a dresser. It was half-full of cans and waxed paper packages. 
+'Wait!' Robbie opened the bottom drawer of a dresser. It was half-full of cans and waxed paper packages. 
 
 It wasn't a stash of snacks... It was enough food for those two for a week...
 
-He quietly took out a tin of hard candy, opened it and offered me some. I took one and put it in my mouth, even though sweets this early in the morning and in the state I as in weren't the best idea. What else was I going to do though?
+He quietly took out a tin of hard candy, opened it and offered me some. I took one and put it in my mouth, even though sweets this early in the morning and in the state I was in weren't the best idea. What else was I going to do though?
 
 'I don't suppose you have a bit of bread? I promised some to my rooster, I need to bribe him. He is a bit miffed.' I smiled apologetically.
 
@@ -140,7 +140,7 @@ I groaned.
 Tiffany laughed.  
 We groaned again.
 
-I sat down in the free seat between Tiffany and Decker, enjoying the cool breeze from the open window. Travis filled a plate and set sat in front of me, along with a mug of steaming coffee. I felt good enough to eat, so I carefully picked at it and chased it with the hot brew. Generally there was a companionable silence only interspersed with minor grunts and pained groans.
+I sat down in the free seat between Tiffany and Decker, enjoying the cool breeze from the open window. Travis filled a plate and set it in front of me, along with a mug of steaming coffee. I felt good enough to eat, so I carefully picked at it and chased it with the hot brew. Generally there was a companionable silence only interspersed with minor grunts and pained groans.
 
 After we were finished, the dead came back to life, myself included.
 
