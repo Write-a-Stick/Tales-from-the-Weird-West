@@ -35,17 +35,17 @@ Magic is color-coded, and there was quite a list.
 Golden for Shamans.  
 Bright green for Hucksters.  
 White for those whom God responds to.  
-Bluish for natural talent, like Tiffany or I. 
-Purple for Voodoo. 
+Bluish for natural talent, like Tiffany or I.  
+Purple for Voodoo.  
 Red for demonic. 
 
 _So God and demons exist... Oooohkayyyyy..._
 
-Then there was black.
-
-'Black was the color of ancient, indescribable creatures born of the Abyss between worlds. If you see black, run.'
+Then there was black.  
 
 They were very serious when they mentioned black. These two aren't serious often, that in of itself was chilling.
+
+'Black is the color of ancient, indescribable creatures born of the Abyss between worlds. If you see black, run.'
 
 Finally, they explained me, to me. Apparently, I could do all sorts of things, but they all have to be rooted and connected to a memory, a very emotional one.
 

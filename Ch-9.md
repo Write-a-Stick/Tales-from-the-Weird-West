@@ -1,6 +1,6 @@
 <center>
 <h3>Chapter Nine</h3>
-<h3>Open hands. Empty hands.</h3>
+<h3>Open hands, empty hands</h3>
 </center>
 
 ‘Cockadoo… Cockadoo!’
@@ -89,7 +89,7 @@ She hesitated and thought for a moment.
 
 I didn't recognize the name, so I asked. 
 
-'I forgot you haven't met him yet.' Tiffany looked at me closely as she continued. 'He is Travis's partner...' 
+'I forgot you haven't met him yet.' Tiffany looked at me closely as she continued. 'He is Travis's partner... not the business kind.' 
 
 _Oooohkayyyy..._
 
