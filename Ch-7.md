@@ -39,7 +39,7 @@ _Here we go._
 
 'I HAAATE MONDAAAYS!!!
 
-The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a tiny lightning connected with You Bastard.
+The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a tiny bolt of lightning connected with You Bastard.
 
 I was shocked, looking from my finger to You Bastard.
 
@@ -68,7 +68,7 @@ I dashed for the door, my head and stomach protesting every movement. I could he
 
 I leaned on the wall and looked at my hands.
 
-_I did magic! It's real! And I can do it!_
+_I did magic! It’s real! And I can do it!_
 
 This was the moment another door in the hall opened and a head peeked out. It was a boy, around ten, round faced, with blond hair sticking out in every direction. He looked a bit sleepy as he came towards me.
 

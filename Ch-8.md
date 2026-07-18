@@ -41,7 +41,7 @@ Red for demonic.
 
 _So God and demons exist... Oooohkayyyyy..._
 
-Then there was black.  
+Then there was black.
 
 They were very serious when they mentioned black. These two aren't serious often, that in of itself was chilling.
 
@@ -71,7 +71,7 @@ This was suspiciously deep for McCoy. Sounded personal, too.
 
 'Just remember that sometimes what you want, what is right and what you have to do can be four different things.' Travis said grimly.
 
-'That's three, if I decide to be generous...' 
+'That’s three, if I decide to be generous...' 
 
 _Take that._
 

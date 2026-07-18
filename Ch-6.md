@@ -55,4 +55,4 @@ He and Decker exchanged glances. Bonnie nodded silently.
 
 I knew the kind of debts McCoy was used to. This might have been said lightly, but I saw it for what it was. He would have helped anyway, but now he got to say he didn’t want to.
 
-Silence. Smiles all around. A quiet moment. 
+Silence. Smiles all around. A quiet moment.
