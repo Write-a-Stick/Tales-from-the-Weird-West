@@ -16,7 +16,7 @@ I grabbed it, put on my overcoat and ran downstairs. I had a drunk to follow. He
 
 Canton is big enough to get lost in and there are plenty people about in the afternoons, so I had no trouble following unseen. McCoy seemed to be walking in a certain direction, which happened to require turning pretty often. He was either drunk or unfamiliar with the city. Or both. Most locals would have probably used main streets for a lot of the way for comfort, then only turn when needed. _Comes with familiarity, I guess._
 
-I was curious where his family lived, maybe I knew them, or someone I knew did. Either his grandmother lived in a remote farm or he lied about his destination, because we started approaching the city limits. With traffic reducing to barely a trickle and buildings becoming sparser, following unobserved became that much harder. I stood there for a while looking around for ideas, trying to think of something, when I noticed it.
+I was curious where his family lived. Maybe I knew them, or someone I knew did. Either his grandmother lived on a remote farm, or he lied about his destination, because we started approaching the city limits. With traffic reducing to barely a trickle and buildings becoming sparser, following unobserved became that much harder. I stood there for a while looking around for ideas, trying to think of something, when I noticed it.
 
 Every so often, between somewhere way back and ahead of where we were, ravens perched themselves, doing absolutely nothing in particular. Just sitting there, watching like feathery gargoyles. A whole flock. _I forgot what the specific word was._
 
@@ -32,9 +32,9 @@ _Not a dandy then, rather a dangerous man. Has to be, or he is just really bad a
 
 That’s when it hit me. The man was a liar, first and foremost. And a fantastic one at that. I bought the eccentric dandy persona just like everyone else.
 
-He started dancing, it looked just like the Indians do. Jerky, rapid and rhythmic. After a circling the bonfire a few times, came the wailing song. I couldn’t recognize the words, but golden sparks started to form in his wake. I was entranced by the intensifying spectacle, watching the sparks form an upright spinning ring. As McCoy’s dance and song quickened, so did the ring.
+He started dancing, it looked just like the Indians do. Jerky, rapid and rhythmic. After circling the bonfire a few times, came the wailing song. I couldn’t recognize the words, but golden sparks started to form in his wake. I was entranced by the intensifying spectacle, watching the sparks form an upright spinning ring. As McCoy’s dance and song quickened, so did the ring.
 
-A blurry shape appeared in it, then right there in front of my eyes, a fox-elk shaped... creature... Walked into existence? It was made of an outline of golden light and sparkles pulled from the ring as it crossed. It left trails in my vision as it moved. A fox, with elk horns, tall as a person. Its eyes looked deep and wise. McCoy bowed to the creature, and it returned the gesture, if a bit less deep, more of a nod actually. 
+A blurry shape appeared in it. Then, right there in front of my eyes, a fox-elk-shaped... creature... walked into existence. It was made of an outline of golden light and sparkles pulled from the ring as it crossed. It left trails in my vision as it moved. A fox, with elk horns, tall as a person. Its eyes looked deep and wise. McCoy bowed to the creature, and it returned the gesture, if a bit less deep, more of a nod actually. 
 
 I was dumbstruck, watching something I knew didn’t exist and wasn’t just happening. This definitely wasn’t some stage magic, there wasn’t a stage for miles.
 

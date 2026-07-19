@@ -1,6 +1,6 @@
 <center>
 <h3>Chapter Nine</h3>
-<h3>Open hands. Empty hands.</h3>
+<h3>Open hands, empty hands</h3>
 </center>
 
 ‘Cockadoo… Cockadoo!’
@@ -19,13 +19,13 @@ I reached into the grain pouch I left on the table and threw a handful in his di
 
 I wasn't going to be able to sleep, all riled up as I was, so I decided to get up and get dressed. I went to the study, see what books there were, maybe some magical tomes?
 
-I was surprised see Tiffany there, sprawled over an armchair, book in hand. She looked like she hasn't slept much. Or at all.
+I was surprised to see Tiffany there, sprawled over an armchair, book in hand. She looked like she hadn’t slept much. Or at all.
 
 'Uh... Good Morning. Are you alright?'
 
-She didn't look very happy to see me.
+She didn’t look very happy to see me.
 
-'No. I never sleep when there are strangers in the house.' She answered, annoyed. I decided this wasn't the time to be asking questions.
+'No. I never sleep when there are strangers in the house.' She answered, annoyed. I decided this wasn’t the time to be asking questions.
 
 'I'll just grab a book to read and I will be out of your hair.' 
 
@@ -45,7 +45,7 @@ I moved in quickly, trying to find something interesting and leave. There was a 
 
 After breakfast, Tiffany invited me on a walk. Robbie was adamant to come with, until she told him we would be discussing boys and kissing. We got the cutest 'Ewwww!' in history.
 
-As we left, I noticed she was wearing trousers. I had nothing against it, but it wasn't a common choice. I guessed in this household many things were done differently.
+As we left, I noticed she was wearing trousers. I had nothing against it, but it wasn’t a common choice. I guessed that in this household many things were done differently.
 
 We walked for a while in awkward silence, but I wasn't too bothered, everything around was new and unfamiliar. So much to see. We ended up in the park bordering the main square and sat at a secluded bench. She finally asked the question that was on her mind.
 
@@ -89,7 +89,7 @@ She hesitated and thought for a moment.
 
 I didn't recognize the name, so I asked. 
 
-'I forgot you haven't met him yet.' Tiffany looked at me closely as she continued. 'He is Travis's partner...' 
+'I forgot you haven't met him yet.' Tiffany looked at me closely as she continued. 'He is Travis's partner... not the business kind.' 
 
 _Oooohkayyyy..._
 

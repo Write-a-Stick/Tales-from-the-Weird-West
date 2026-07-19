@@ -12,9 +12,9 @@ It was the year of our Lord 1880, February 13th, seemingly a winter day like any
 
 Luckily, I still had the time to get ready. I sat at the dresser and gave myself an appraising look in the mirror. My hair, as expected, surrounded my head in a wavy ginger mess. Eyes still too big, but the green was growing on me… I would have loved a less pointy chin, but I was feeling generous, so let’s say it looked cute with the high cheekbones. 
 
-Getting the hair in order was going to take a while, so I looked longingly in the direction of my bookshelf, hoping I would have some time today to read something. I wasn’t going to read any Shakespeare, or any dense scientific inquiry, that’s for sure. It was Friday and it was going to be busy, so I’ll probably just settle for a penny dreadful from the ‘Merry Bunch’ series. An easy read at the end of a long day. I did quite enjoy the outlandish tales of the Devil, Wendigo or some other eldritch monstrosity, being brought down by the intrepid heroes. Dad says they’re naive, so often ending happily by the hand of The Merry Bunch. I agree, but it doesn’t bother me. It’s fiction mixed with myth, heavily sprinkled with artistic license.
+Getting the hair in order was going to take a while, so I looked longingly in the direction of my bookshelf, hoping I would have some time today to read something. I wasn’t going to read any Shakespeare or any dense scientific inquiry, that’s for sure. It was Friday, it was going to be busy, so I’ll probably just settle for a penny dreadful from the ‘Merry Bunch’ series. An easy read at the end of a long day. I did quite enjoy the outlandish tales of the Devil, Wendigo or some other eldritch monstrosity, being brought down by the intrepid heroes. Dad says they’re naive, so often ending happily by the hand of The Merry Bunch. I agree, but it doesn’t bother me. It’s fiction mixed with myth, heavily sprinkled with artistic license.
 
-I finally wrangled my hair into a ponytail, leaving thin strands to frame my face. The curls have been subdued right until the tied ribbon. After that, well… there was a reason boys nicknamed me ‘Foxtail’, when I was younger. 
+I finally wrangled my hair into a ponytail, leaving thin strands to frame my face. The curls had been subdued right up until the tied ribbon. After that, well… there was a reason boys nicknamed me ‘Foxtail’ when I was younger. 
 
 Quickly I got dressed and went downstairs, gave the bar and common room a glance, trying to gauge how much cleaning was left over from yesterday. Not too bad, I could deal with the inevitable mess in the gallery later. I put on my overcoat, grabbed the bucket and went to get water from the well.
 
@@ -90,7 +90,7 @@ _WHAT?! He doesn’t even know what state he is in? Maybe it’s like in the sto
 
 ‘I’ll go for a smoke.’
 
-Suspect McCoy got up, threw a blanket over his shoulders and left towards the back garden with leftover bacon in hand. I know the inn extremely well, I worked here all my life. As such, I know where one can observe any point inside and out, while remaining unobserved. This was going to be helpful, now that I needed to watch our guest closely.
+Suspect McCoy got up, threw a blanket over his shoulders and left towards the back garden with leftover bacon in hand. I know the inn extremely well, I worked here all my life. As such, I know where one can observe any point inside and out while remaining unobserved. This was going to be helpful now that I needed to watch our guest closely.
 
  I saw him through the window, he lit up his cigarette, looked around warily and… cawed. Twice. Three times.
 

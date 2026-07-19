@@ -7,7 +7,7 @@ Next morning, after the breakfast rush was done, Dad and I were in the kitchen. 
 
 We kept a companionable silence that is only possible when working with someone who knows exactly what is to be done, because they’ve done it a thousand times before. In the kitchen, Dad is a whirlwind. Extremely focused, communicates primarily in eyebrow and hip-bump. He can tell you a haiku with a slight eyebrow raise. And I swear he has two extra arms or something, just for the frying pans. Always a joy to watch a master at work.
 
-Once done, we sat down with hot coffee, and I readied myself for the difficult conversation ahead.
+Once we were done, we sat down with hot coffee and I readied myself for the difficult conversation ahead.
 
 ‘Dad, I thought some, and I wanted to speak to you about something.’ I started.
 

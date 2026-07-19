@@ -7,7 +7,7 @@ _I'm never drinking again._
 
 It wasn't the first time I suffered the aftereffects, however that morning after deciding to stay in Tucson was particularly vicious. I was parched and the world was spinning, regardless if I had my eyes open or not. Then there was the headache.
 
-I desperately needed water, so I sat up in the bed and looked around the unfamiliar room. Some kind soul put a pitcher and glass on the nightstand. I refilled my glass twice before I decided the room stopped spinning enough to properly look around.
+I desperately needed water, so I sat up in the bed and looked around the unfamiliar room. Some kind soul put a pitcher and glass on the nightstand. I refilled my glass twice, before deciding the room stopped spinning enough to properly look around.
 
 I had a vague memory of someone mentioning a house attached to Utopia, I figured it was where I found myself. I was, most likely, in a guest room. Pretty well appointed, the furniture was good quality and pretty new. 
 
@@ -25,25 +25,32 @@ _Oh no._
 
 What you need to understand about You Bastard is that on Mondays... he crows different. Somehow, it is much, much worse than the other days.
 
-_I hate Mondays_
+_I hate Mondays._
 
 'Cadooo...'
 
-_Here we go_
+I knew what was coming and I couldn't let it just happen. I took a deep breath in the vain hopes I can match the rooster.
+
+_Here we go._
 
 'CADOOLADOOOOODOOOO!!!'
 
-I knew it was coming and I couldn't let it just happen. In an act of painful defiance, I screamed with and back at him.
+ In an act of painful defiance, I screamed with and back at him.
 
 'I HAAATE MONDAAAYS!!!
 
-The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a small lightning connected with You Bastard.
+The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a tiny bolt of lightning connected with You Bastard.
+
+I was shocked, looking from my finger to You Bastard.
 
 _Holy Crap! I did magic!_
 
-I was shocked. The rooster went quiet. Dead quiet.
+ The rooster went quiet. Dead quiet.
 
-Then we both noticed that the lightning only slightly singed his foot. His beady little eyes narrowed. I glanced at the distance to the door. I could make it.
+Then we both noticed that the lightning only slightly singed his foot. 
+His beady little eyes narrowed. 
+
+I glanced at the distance to the door. I could make it.
 
 'BWAAAAAAAAAAAAK!'
 
@@ -61,7 +68,7 @@ I dashed for the door, my head and stomach protesting every movement. I could he
 
 I leaned on the wall and looked at my hands.
 
-_I did magic! It's real! And I can do it!_
+_I did magic! It’s real! And I can do it!_
 
 This was the moment another door in the hall opened and a head peeked out. It was a boy, around ten, round faced, with blond hair sticking out in every direction. He looked a bit sleepy as he came towards me.
 
@@ -212,3 +219,6 @@ I nodded, feeling a chill run down my spine.
 
 'Fine, it's all dangerous, I understand. You keep talking about the dangers, but I want to know what I am too! Is this finally the time you tell me what my magic is about?' 
 
+<center>
+<h4><i>Someone better have answers, I am getting mighty tired of having my choices made for me.</i></h4>
+</center>

@@ -141,9 +141,9 @@ We sat down, the box on the table. With a gaudy flourish, he removed the cloth, 
 
 ‘Bwaa?! Pock. Pock bwaak…’
 
-Somehow, You Bastard looked sad. It drooped it’s head, his comb flopping to the side as it sat down, resigned. My heart broke, he looked so sad. I never really hated him, he was just…annoying. 
+Somehow, You Bastard looked sad. It drooped it’s head, his comb flopping to the side as it sat down, resigned. My heart broke, he looked so sad. I never really hated him, he was just… annoying. 
 
-‘Awwww….’ I couldn’t help it, I reached my hand into the cage and pet his head a few times. You Bastard gave me the cold shoulder, but didn’t peck or startle.
+‘Awwww…’ I couldn’t help it, I reached my hand into the cage and pet his head a few times. You Bastard gave me the cold shoulder, but didn’t peck or startle.
 
 ‘There, it’s ok… I don’t hate you. Not really. Not after the mornings, anyway.’
 

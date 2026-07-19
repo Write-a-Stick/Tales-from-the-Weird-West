@@ -3,13 +3,13 @@
 <h3>Friends of friends?</h3>
 </center>
 
-The cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you travelled at their base. Towns, flatlands, deserts, it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
+The cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you travelled at their base. Towns, flatlands, deserts - it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
 
 Thinking about it reminded me yet again of The Principal. It was home, and it was very far away now. We shut the doors, hired a guard and posted notice that we would reopen in two weeks. It felt like betrayal, somehow. Just as I was considering if The Principal could have feelings, our destination came into view ahead.
 
 From afar you could see smoke from a few factory stacks, rising into the late morning sky. There was no snow, and it was comparatively warm, considering the weather back in Ohio. The station wasn’t on the edge of town, meaning Tucson grew enough to claim the space around it. I never expected that penny dreadful tidbit to ever come in handy.
 
-We booked lodgings in a hotel called ‘The Winchester’. It was smaller than The Principal, felt different, smelled different, but it was a good standard. We dressed down for the weather and went looking.
+We booked lodgings in a hotel called ‘The Winchester’. It was smaller than The Principal, felt different, smelled different, but it was a good standard all the same. We dressed down for the weather and went looking.
 
 Before he left, McCoy told us to check a local saloon called ‘Utopia’. Following some directions, we passed Main Street, all columns and fancy, wrought fences. It was the proud civic centre of Tucson. Pretty, but not where we needed to be. We went by, to the end of a side street, where Utopia was sat on the corner. Couldn’t miss it, for the large, shiny sign extending over the street. Right under, there was a cart with ‘Ice Cream 1-10c’ written over a small open window. I wanted ice cream, suddenly. 
 
