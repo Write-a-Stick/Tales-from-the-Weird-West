@@ -102,7 +102,7 @@ Then, as people do, he started quietly talking to it. I moved closer to the door
 
 I went about my duties, and not long after, McCoy came in with the raven perched on his shoulder. This is when Dad let him know of our rules.
 
-‘I am sorry, Mr McCoy, but we do not allow animals in here.’ McCoy looked like he took serious offence. 
+‘I am sorry, Mr. McCoy, but we do not allow animals in here.’ McCoy looked like he took serious offence. 
 
 ‘Oh really?’ He replied with the most condescending drawl imaginable. Other guests took interest now, too. Miss Ellison from 204 cast a particularly withering side-eye.
 

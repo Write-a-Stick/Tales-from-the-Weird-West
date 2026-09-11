@@ -27,13 +27,13 @@ Was I the only one seeing this? No one before me seemed to notice, there didn’
 
 ‘Billy! This is terrible service! I’m standing here and you’re in there, sitting, making me wait! I come here every day! At the exact same time!’ I looked at the scene incredulous, no one else saying anything.
 
-‘Coming, Mrs. Doolan! There you go Mrs Doolan! That will be 10 cents, Mrs Doolan!’ Billy replied and passed a chocolate ice cream with colourful sprinkles. I did not punch the woman only because of her age.
+‘Coming, Mrs. Doolan! There you go Mrs. Doolan! That will be 10 cents, Mrs. Doolan!’ Billy replied and passed a chocolate ice cream with colourful sprinkles. I did not punch the woman only because of her age.
 
 ‘Thank you, Dearie.’ She smiled warmly at the little window. _What is happening?!_ 
 
 ‘You know I love bossing you around, Billy. I’ll see you tomorrow.’ She passed a quarter coin and left, tapping her cane on the cobblestones in a jolly rhythm.
 
-‘See you tomorrow Mrs Doolan!’ 
+‘See you tomorrow Mrs. Doolan!’ 
 
 I specifically avoided thinking about the whole exchange and brought over the treat to Dad, sat down and we started eating.
 
@@ -59,15 +59,15 @@ Odd is normal now.
 
 Dad leaned on the bar next to me, watching and not interrupting. Which was curious, normally he is very protective of me. Still, his presence gave me confidence.
 
-‘I’m looking for Mr Hanlon.’
+‘I’m looking for Mr. Hanlon.’
 
 ‘Who?’
 
-‘Mr Travis Hanlon.’
+‘Mr. Travis Hanlon.’
 
 ‘He a friend of yours?’ This felt very much like an interrogation. Dad then turned to face the bartender.
 
-‘Friend of a friend. One who is asking politely that Mr Hanlon be a perfect gentleman’. He said.
+‘Friend of a friend. One who is asking politely that Mr. Hanlon be a perfect gentleman’. He said.
 
 ‘That friend got a name?’ Their eyebrows were having a separate conversation altogether, but I was never quite fluent in browish.
 
@@ -79,7 +79,7 @@ True to her word, not long after a man came out of the same door. Around thirty,
 
 ‘Bonnie, I can’t do this sober. Open bar for those two.’  He drawled. Things were getting serious right off the cuff. 
 
-What sort of insanity is Decker McCoy is up to for these people to react this way?
+_What sort of insanity is Decker McCoy is up to for these people to react this way?_
 
 We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whisky. The man took out and shuffled a deck of cards one-handed in a practiced, habitual motion. Didn't look at it once.
 
@@ -107,7 +107,7 @@ We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whis
 
 ‘Not sure myself Dad, but I think we’re ready to talk?’ I glanced around, they both nodded. 
 
-‘You seem to know Mr McCoy quite well, Mr Hanlon-’ I start.
+‘You seem to know Mr. McCoy quite well, Mr. Hanlon-’ I start.
 
 ‘Just Travis to both of you.’ I smiled and nodded, he seemed sincere. ‘As for McCoy, yes. I know him, like you know the weather. It exists, does its thing and leaves you knee deep in mud whenever it feels like it. How did he happen to you?’
 
@@ -117,7 +117,7 @@ I swallowed. I didn’t think about it much after. Actually, not at all. The mem
 
 ‘Have you made any deals with suspicious individuals recently? Cryptic, but nice? Perhaps in your dreams? Signed a contract of any kind?’ He queried.
 
-‘I mean… Mr McCoy said Dad owes him. Does this count?’ He burst into a chortle.
+‘I mean… Mr. McCoy said Dad owes him. Does this count?’ He burst into a chortle.
 
 ‘Yes, but not for the reasons I’m worried about. You would remember if it happened, thank you.’ He sighed.
 
