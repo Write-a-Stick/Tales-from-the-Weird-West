@@ -88,7 +88,7 @@ Now that I knew Dad is going to be fine and himself, I had questions. So I went 
 
 ‘You know it’s unfair and you are still doing it.’ I protested.
 
-‘Yes, because it amuses me. But my amusement aside, you do have the right to know. One.’ _Thank you Mr Generous._ Still, I needed to know.
+‘Yes, because it amuses me. But my amusement aside, you do have the right to know. One.’ _Thank you Mr. Generous._ Still, I needed to know.
 
 ‘So how does all this magic work? Is someone finally going to tell me?’ Two.
 
@@ -151,9 +151,9 @@ The door opened and I froze. Dad came back. Chicken. McCoy.
 
 _This is the moment. Truth? No. Misdirection? Misdirection._
 
-‘Welcome back, Dad’ I smiled at him. ‘Mr McCoy brought him over.’ Dad took the room in, closed the door behind him.
+‘Welcome back, Dad’ I smiled at him. ‘Mr. McCoy brought him over.’ Dad took the room in, closed the door behind him.
 
-‘Good Morning Mr McCoy. Why are you here?’ He sat down at the table with us.
+‘Good Morning Mr. McCoy. Why are you here?’ He sat down at the table with us.
 
 ‘I was in still in Canton, when I noticed your friend there looked sad, all on his own. So I brought him over. Look how happy he is to see your daughter!’ Dad thought for a moment.
 
@@ -163,13 +163,13 @@ _This is the moment. Truth? No. Misdirection? Misdirection._
 
 ‘No issue, we make allowances for pets. We’re very forward thinking. We think pets are important for student’s development. Some have horses. Others have chickens.’ He shrugged like was normal and obvious.
 
-‘Mr McCoy, you never said you were part of the school.’ Dad was suspicious.
+‘Mr. McCoy, you never said you were part of the school.’ Dad was suspicious.
 
 ‘I work in the field. Research. Old tombs. Interesting gossip. Someone digs up something valuable? I go and see what it is, what it’s worth. Sometimes that gets me in a spot of bother.’ He grinned. 
 
 This is when Dad asked the question I didn’t expect, and immediately feared the result of.
 
-‘Mr McCoy, does the school have a place for someone like me? I cook, clean, do inventory. I can be useful.’ 
+‘Mr. McCoy, does the school have a place for someone like me? I cook, clean, do inventory. I can be useful.’ 
 
 My breath hitched. McCoy, on the other hand, didn’t even blink.
 
@@ -189,7 +189,7 @@ Dad looked at me and took a breath.
 
 That is when McCoy did something so un-McCoy, it burned into my memory.
 
-‘Science experiments are dangerous. Archeology is, too. Emma needs to learn, grow into herself. We offer it to her, but you cannot follow. Mr Coates, you owe me. I am calling in the debt, now. Go. home.’ He said with a little bit of menace, but quite a lot of warmth. 
+‘Science experiments are dangerous. Archeology is, too. Emma needs to learn, grow into herself. We offer it to her, but you cannot follow. Mr. Coates, you owe me. I am calling in the debt, now. Go. home.’ He said with a little bit of menace, but quite a lot of warmth. 
 
 ‘You need to go home, so she has a real one to come back to.’
 
