@@ -3,7 +3,9 @@
 <h3>I didn’t see it staring</h3>
 </center>
 
-My hatred for You Bastard managed to flare up several more times before something noteworthy happened again. One afternoon, Suspect McCoy had one too many, mumbled something about ‘having to talk to his nana’ and stumbled outside. Work was slow, so I excused myself with Dad, promising to come back soon. I quickly ran to my room to get my things.
+My hatred for You Bastard managed to flare up several more times over the next week before something noteworthy happened again. 
+
+One afternoon, Suspect McCoy had one too many, mumbled something about ‘having to talk to his nana’ and stumbled outside. Work was slow, so I excused myself with Dad, promising to come back soon. I quickly ran to my room to get my things.
 
 Whatever you say about my Dad, he loves his daughter. I get to keep unclaimed choice pieces from the lost and found box, even though they could be sold for good money with the rest of them. My special drawer is full of gadgets, knick-knacks and baubles. The prettiest are the glass sphere, music box and bag of colourful marbles. I wasn’t here for them. 
 
