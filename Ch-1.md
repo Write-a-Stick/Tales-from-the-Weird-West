@@ -8,7 +8,7 @@
 
 You Bastard was going to do it at least three more times. With just enough time between to rouse me out of sleep again, had I dared to shut my eyes. The chill in the room was slight, but biting when I got out from under warm covers.
 
-It was the year of our Lord 1880, February 13th, seemingly a winter day like any other. Out the window, snow covered roofs glittered in the dawn light, while the blue sky belied the chill in the air. Dirty white mounds lined the stone and wood fronts of buildings, the cobblestone streets were carpeted in fresh, frosty dust. Some people had already tread the snow on their way to work or some other business, leaving trails of footprints. It was all quite pretty and tranquil, unless you had to go out. Here in The Principal, the day starts early, with firelighting and water carrying. And it did, in fact, involve going out.
+It was the year of our Lord 1880, February 13th, seemingly a winter day like any other. Out the window, snow covered roofs glittered in the dawn light, while the blue sky belied the chill in the air. Dirty white mounds lined the stone and wood fronts of buildings, the cobblestone streets were carpeted in fresh, frosty dust. Some people had already trodden the snow on their way to work or some other business, leaving trails of footprints. It was all quite pretty and tranquil, unless you had to go out. Here in The Principal, the day starts early, with firelighting and water carrying. And it did, in fact, involve going out.
 
 Luckily, I still had the time to get ready. I sat at the dresser and gave myself an appraising look in the mirror. My hair, as expected, surrounded my head in a wavy ginger mess. Eyes still too big, but the green was growing on me… I would have loved a less pointy chin, but I was feeling generous, so let’s say it looked cute with the high cheekbones. 
 
@@ -22,7 +22,7 @@ Quickly I got dressed and went downstairs, gave the bar and common room a glance
 
 Having exited via the back door, I saw an unusual-looking man. A tall man, worn, unkempt and tired. He was dressed in high quality clothes and hat, embroidery and all. Or, at least they used to be good quality - now they shared their state with their owner. Dirty, singed at the edges and torn. They would have been appropriate for the warm, sunny weather. Which we, obviously, didn't have. I could smell a slight burning and something else, even through the cold. Then the wind changed and my eyes watered.
 
-‘Well howdy there, Miss’ - he said in a tone fit for a dandy socialite. Somehow I expected him to sound like he drank too much whisky and gargled gravel every morning. 
+‘Well howdy there, Miss’ - he said in a tone fit for a dandy socialite. Somehow I expected him to sound like he drank too much whiskey and gargled gravel every morning. 
 
 ‘I didn't want to go in and stink up the place, and you caught me considering my options. Is there a chance for a room, a bath and a meal?’ He waved at all three floors of The Principal behind me. He was blocking my way to the well, and I didn't want to get closer for the smell.
 
@@ -90,19 +90,19 @@ _WHAT?! He doesn’t even know what state he is in? Maybe it’s like in the sto
 
 ‘I’ll go for a smoke.’
 
-Suspect McCoy got up, threw a blanket over his shoulders and left towards the back garden with leftover bacon in hand. I know the inn extremely well, I worked here all my life. As such, I know where one can observe any point inside and out while remaining unobserved. This was going to be helpful now that I needed to watch our guest closely.
+Suspect McCoy got up, threw a blanket over his shoulders and left toward the back garden with leftover bacon in hand. I know the inn extremely well, I worked here all my life. As such, I know where one can observe any point inside and out while remaining unobserved. This was going to be helpful now that I needed to watch our guest closely.
 
  I saw him through the window, he lit up his cigarette, looked around warily and… cawed. Twice. Three times.
 
 ‘CAW! CAW! CAAAW!’ 
 
-It was uncanny, apparently he could make animal noises. A performer of some kind? Maybe one of those eccentrics? You know, crazy, but not in a dangerous way. My interest was piqued, at this point definitely the oddest thing I’ve seen in a while. Shortly after, a raven landed on his outstretched arm. Not a common pet, granted, but not unheard of. It happily ate the proferred bacony treat. 
+It was uncanny, apparently he could make animal noises. A performer of some kind? Maybe one of those eccentrics? You know, crazy, but not in a dangerous way. My interest was piqued, at this point definitely the oddest thing I’ve seen in a while. Shortly after, a raven landed on his outstretched arm. Not a common pet, granted, but not unheard of. It happily ate the proffered bacony treat. 
 
 Then, as people do, he started quietly talking to it. I moved closer to the door, so that I could hear. It promised to be amusing to hear him coo over his pet. I was not amused, not at all. I would have sworn he was having a quiet, conspiratorial conversation with it. In raven-speak. I wasn’t sure what to think of it yet, but I was definitely going to make sure he’s not up to no good here. 
 
 I went about my duties, and not long after, McCoy came in with the raven perched on his shoulder. This is when Dad let him know of our rules.
 
-‘I am sorry, Mr. McCoy, but we do not allow animals in here.’ McCoy looked like he took serious offence. 
+‘I am sorry, Mr. McCoy, but we do not allow animals in here.’ McCoy looked like he took serious offense. 
 
 ‘Oh really?’ He replied with the most condescending drawl imaginable. Other guests took interest now, too. Miss Ellison from 204 cast a particularly withering side-eye.
 
@@ -110,7 +110,7 @@ I went about my duties, and not long after, McCoy came in with the raven perched
 
 He handed a quarter coin to his raven, Corvus apparently, who picked it up in its beak. It jumped onto the bar in front of Dad, put the coin down, and tapped the bar twice.
 
-‘Peanuts, please.’ It’s voice slightly raspy, but not unpleasant.
+‘Peanuts, please.’ Its voice slightly raspy, but not unpleasant.
 
 Dad looked shocked, as one would, when confronted with a talking animal. A moment passed, as the two stared at each other. Then Dad chuckled.
 
@@ -124,11 +124,11 @@ Dad waved a hand in mock surrender and placed a bowl of the requested snack on t
 
 ‘If it does, it’s on you to clean it.’
 
-After a final coffee, our guest went out to 'improve on his wardrobe’. He came back in a new set of clothes and some spares under his arm. He clearly had a style he liked and a flair for the dramatic. He strode in like the guest of honour at a fancy ball, wearing a crisp white shirt with silver cufflinks, wine coloured waistcoat and black dress trousers. The look was completed by a black and silver paisley ascot peeking from under the shirt and shiny new footwear. 
+After a final coffee, our guest went out to 'improve on his wardrobe’. He came back in a new set of clothes and some spares under his arm. He clearly had a style he liked and a flair for the dramatic. He strode in like the guest of honor at a fancy ball, wearing a crisp white shirt with silver cufflinks, wine colored waistcoat and black dress trousers. The look was completed by a black and silver paisley ascot peeking from under the shirt and shiny new footwear. 
 
-The boots were nowhere near as fancy as the rest of it, clearly and unexpectedly favouring comfort and practicality over aesthetics. They suggested the guest of honour considers a rapid escape or kicking down doors a distinct possibility. 
+The boots were nowhere near as fancy as the rest of it, clearly and unexpectedly favoring comfort and practicality over aesthetics. They suggested the guest of honor considered a rapid escape or kicking down doors a distinct possibility. 
 
-Coming in from the cold outside, he also wore a wine coloured long coat and a black gambler hat. Like I said, he had a style he liked. 
+Coming in from the cold outside, he also wore a wine-colored long coat and a black gambler hat. Like I said, he had a style he liked. 
 
 Yet the most obnoxious item was the half-cape he wore over his right shoulder and included in some of his most theatrical gestures. It was white in black patterned zigzags going down its length. When you watched it move, it did weird things to your eyes. Kind of attracting and distracting at the same time.
 
@@ -136,7 +136,7 @@ Yet the most obnoxious item was the half-cape he wore over his right shoulder an
 
 With that, Decker McCoy and his raven became a semi-permanent fixture in The Principal, for a time. He would go about his business for most of the day. When here, he maintained a likeable, if mischievous, attitude. He talked, he bought drinks, he gambled and he bragged. He told stories of the Weird West, of magic and monsters. They were just as entertaining as they were outlandish, at least when I had the time to listen. The raven was well behaved and clean. 
 
-Dad and I quickly got used to his habits and oddities, all in all he wasn’t too troublesome. The more you listened and watched, the more you noticed he was just an eccentric full of hot air and a glorified sense of self importance. Loud, but ultimately irrelevant and insignificant in the grand scheme of things. 
+Dad and I quickly got used to his habits and oddities, all in all he wasn’t too troublesome. The more you listened and watched, the more you noticed he was just an eccentric full of hot air and a glorified sense of self-importance. Loud, but ultimately irrelevant and insignificant in the grand scheme of things. 
 
 Yet somehow, I couldn’t help feeling there was more to the man. I just couldn’t see it. I was going to find some redeeming quality, it became my mission. 
 <center>

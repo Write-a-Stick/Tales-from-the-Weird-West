@@ -5,7 +5,7 @@
 
 _I'm never drinking again._
 
-It wasn't the first time I suffered the aftereffects, however that morning after deciding to stay in Tucson was particularly vicious. I was parched and the world was spinning, regardless if I had my eyes open or not. Then there was the headache.
+It wasn't the first time I suffered the aftereffects, however that morning after deciding to stay in Tucson was particularly vicious. I was parched and the world was spinning, regardless of whether I had my eyes open or not. Then there was the headache.
 
 I desperately needed water, so I sat up in the bed and looked around the unfamiliar room. Some kind soul put a pitcher and glass on the nightstand. I refilled my glass twice, before deciding the room stopped spinning enough to properly look around.
 
@@ -29,7 +29,7 @@ _I hate Mondays._
 
 'Cadooo...'
 
-I knew what was coming and I couldn't let it just happen. I took a deep breath in the vain hopes I can match the rooster.
+I knew what was coming and I couldn't let it just happen. I took a deep breath in the vain hope that I could match the rooster.
 
 _Here we go._
 
@@ -37,7 +37,7 @@ _Here we go._
 
  In an act of painful defiance, I screamed with and back at him.
 
-'I HAAATE MONDAAAYS!!!
+'I HAAATE MONDAAAYS!!!'
 
 The skull-splitting headache crescendoed. I felt my hair stand on end and my skin crawl with invisible insects. There was a loud bang, and from my outstretched hand, a tiny bolt of lightning connected with You Bastard.
 
@@ -70,7 +70,7 @@ I leaned on the wall and looked at my hands.
 
 _I did magic! It’s real! And I can do it!_
 
-This was the moment another door in the hall opened and a head peeked out. It was a boy, around ten, round faced, with blond hair sticking out in every direction. He looked a bit sleepy as he came towards me.
+This was the moment another door in the hall opened and a head peeked out. It was a boy, around ten, round faced, with blond hair sticking out in every direction. He looked a bit sleepy as he came toward me.
 
 I was lucky the ruckus woke only him. I didn't want to imagine what the world was like for someone in close proximity to not one, but two unhinged, hung-over wizards.
 
@@ -100,7 +100,7 @@ I mouthed a 'Sorry!' and started to back up.
 
 It wasn't a stash of snacks... It was enough food for those two for a week...
 
-He quietly took out a tin of hard candy, opened it and offered me some. I took one and put it in my mouth, even though sweets this early in the morning and in the state I was in weren't the best idea. What else was I going to do though?
+He quietly took out a tin of hard candy, opened it and offered me some. I took one and put it in my mouth, even though candy this early in the morning and in the state I was in weren't the best idea. What else was I going to do though?
 
 'I don't suppose you have a bit of bread? I promised some to my rooster, I need to bribe him. He is a bit miffed.' I smiled apologetically.
 

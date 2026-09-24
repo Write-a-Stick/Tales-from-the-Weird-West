@@ -3,17 +3,17 @@
 <h3>Not the same, but just the right shape</h3>
 </center>
 
-Dad went back. 
+February 29th 1880 is a day I will forever remember. 
 
-I stayed. 
+I spent most of the day with Dad, just talking, just being there. Far too early the setting sun interrupted our time and ushered us to the train station. We said ‘Farewell’, for the first time knowing that we wouldn’t see each other for months. We cried, and it was good. I keep it in a special place in my soul, where warm things go. Eventually Dad boarded the train, while I stayed, watching it disappear beyond the horizon.
 
-I will forever remember when we said ‘Farewell’, for the first time knowing that we wouldn’t see each other for months. We cried, and it was good. I keep it in a special place in my soul, where warm things go. Not a goodbye. Not forever.
+_Not a goodbye. Not forever. Breathe._
 
 Somehow, right after, my legs led me to Utopia. Bonnie started pouring a Riesling the moment she saw me.
 
 ‘Thank you. But today, I would like an Atherton, too.’
 
-She finished the glass, turned and set two low-balls with ice between us. Silently poured the drinks, set the bottle down purposefully. Like a ritual, almost. Well, for bartenders, it was. I raised my glass silently.
+She finished the glass, turned and set two low-balls with ice between us. She poured the whiskeys and set the bottle down purposefully, like a ritual, almost. Well, for bartenders, it was. I raised my glass silently.
 
 ‘Your father is a good man.’ She raised hers.
 
@@ -21,7 +21,7 @@ She finished the glass, turned and set two low-balls with ice between us. Silent
 
 ‘To his strength.’ We downed it.
 
-I reached to pay, just what you do. Bonnie raised a judgemental eyebrow.
+I reached to pay, just what you do. Bonnie raised a judgmental eyebrow.
 
 ‘You know better.’
 
@@ -33,9 +33,9 @@ I nodded.
 
 A while later, just as I was starting to feel the alcohol, guess who strode in. Surprisingly, Decker dropped most of his flourish after one glance at the bar. He propped himself sideways and gave my shoulder a tap and a comforting squeeze. Two more glasses appeared on the bar, followed by the last remaining person I knew in this town.
 
-‘I take it your father went back?’ Travis finally asks.
+‘I take it your father went back?’ Travis finally asked.
 
-‘Yes... we’re having a drink in his honour.’
+‘Yes... we’re having a drink in his honor.’
 
 He and Decker exchanged glances. Bonnie nodded silently.
 

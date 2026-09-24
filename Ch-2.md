@@ -3,9 +3,11 @@
 <h3>I didn’t see it staring</h3>
 </center>
 
-My hatred for You Bastard managed to flare up several more times before something noteworthy happened again. One afternoon, Suspect McCoy had one too many, mumbled something about ‘having to talk to his nana’ and stumbled outside. Work was slow, so I excused myself with Dad, promising to come back soon. I quickly ran to my room to get my things.
+My hatred for You Bastard managed to flare up several more times over the next week before something noteworthy happened again. 
 
-Whatever you say about my Dad, he loves his daughter. I get to keep unclaimed choice pieces from the lost and found box, even though they could be sold for good money with the rest of them. My special drawer is full of gadgets, knick-knacks and baubles. The prettiest are the glass sphere, music box and bag of colourful marbles. I wasn’t here for them. 
+One afternoon, Suspect McCoy had one too many, mumbled something about ‘having to talk to his nana’ and stumbled outside. Work was slow, so I excused myself with Dad, promising to come back soon. I quickly ran to my room to get my things.
+
+Whatever you say about my Dad, he loves his daughter. I get to keep unclaimed choice pieces from the lost and found box, even though they could be sold for good money with the rest of them. My special drawer is full of gadgets, knick-knacks and baubles. The prettiest are the glass sphere, music box and bag of colorful marbles. I wasn’t here for them. 
 
 I was here for the Adventure Bag, in truth just a worn old satchel. In it, my spyglass, compass, lighter and pocket watch - by far the most useful things I own. I keep them with an old notebook and pencils. 
 
@@ -20,9 +22,9 @@ I was curious where his family lived. Maybe I knew them, or someone I knew did. 
 
 Every so often, between somewhere way back and ahead of where we were, ravens perched themselves, doing absolutely nothing in particular. Just sitting there, watching like feathery gargoyles. A whole flock. _I forgot what the specific word was._
 
-I figured I could follow tracks from a distance using my spyglass, so I did. Once they veered off the road, I took a parallel route a bit further down. That way I could reach the same destination, remaining unobserved and leaving no suspicious tracks of my own. The trail lead straight to a hill outside of town, still pretty close, but you couldn’t see the city itself anymore for the terrain. 
+I figured I could follow tracks from a distance using my spyglass, so I did. Once they veered off the road, I took a parallel route a bit further down. That way I could reach the same destination, remaining unobserved and leaving no suspicious tracks of my own. The trail led straight to a hill outside of town, still pretty close, but you couldn’t see the city itself anymore for the terrain. 
 
-I knew we were there, when I saw Suspect McCoy busy lighting a fire. I set myself behind an evergreen that left the view of the hill mostly unobscured, and waited. It was quite tranquil, actually. Snowy hill with sparse, yet old trees, currently bare of leaves. About a half dozen ravens sat in the branches, late afternoon sun cast long shadows onto the snow. 
+I knew we were there, when I saw Suspect McCoy busy lighting a fire. I set myself behind an evergreen that left the view of the hill mostly unobscured, and waited. It was quite tranquil, actually. Snowy hill with sparse, yet old trees, currently bare of leaves. About a half a dozen ravens sat in the branches, late afternoon sun cast long shadows onto the snow. 
 
 Once the flames were a decent height, McCoy went out of view. Something was going to happen, I could feel it in my bones. He emerged a short while later, shirtless, seemingly unaffected by the cold and no longer drunk. His chest and face were painted, around his neck a long necklace of little things on a string. Wooden carvings, grass bundles, tiny leather satchels, I counted at least a dozen.
 
@@ -38,15 +40,15 @@ A blurry shape appeared in it. Then, right there in front of my eyes, a fox-elk-
 
 I was dumbstruck, watching something I knew didn’t exist and wasn’t just happening. This definitely wasn’t some stage magic, there wasn’t a stage for miles.
 
- A shame I couldn’t hear anything, they definitely were having an animated conversation of some kind. It took a while, but eventually they said their farewells, the Foxelk turned and stepped out of existence again. All that was left was a slowly falling dusting of dying golden lights. 
+A shame I couldn’t hear anything, they definitely were having an animated conversation of some kind. It took a while, but eventually they said their farewells, the Foxelk turned and stepped out of existence again. All that was left was a slowly falling dusting of dying golden lights. 
  
  McCoy went out of view, presumably to get cleaned up and dressed. I decided to wait it out, out of sight, to see if he goes back to town or somewhere else.
 
 I didn’t get to check, because of what happened next. 
 
-I heard the flapping of many bird wings behind me, just as a whole flock of ravens landed in the snow. One of the birds was well ahead of the others, it’s eyes glowing gold. 
+I heard the flapping of many bird wings behind me, just as a whole flock of ravens landed in the snow. One of the birds was well ahead of the others, its eyes glowing gold. 
 
-‘May the winds favour you.’ It spoke in a voice that drinks too much whisky and gargles gravel every morning. 
+‘May the winds favor you.’ It spoke in a voice that drinks too much whiskey and gargles gravel every morning. 
 ‘I am Corvus Corax, and we are Murder Corvus. You will stay for now. ’ 
 
 _Now I remember. A murder. Of course._
@@ -55,11 +57,11 @@ He didn’t even bother with threats. I was terrified, I was sure that a feather
 
 ‘Good Evening, Miss Emma.‘ He tipped his hat. 
 
-‘Most people never look up enough to fool me.’ He nodded towards the birds and looked me in the eyes, relaxed expression turning thoughtful. I wasn’t going to be rude, so I greeted him too. Safer that way.
+‘Most people never look up enough to fool me.’ He nodded toward the birds and looked me in the eyes, relaxed expression turning thoughtful. I wasn’t going to be rude, so I greeted him too. Safer that way.
 
 ‘Mr. McCoy.’ I had so many questions, the first one just jumped out on its own. 
 
-‘What in God’s name happened up there?’ I asked, pointing towards the hill.
+‘What in God’s name happened up there?’ I asked, pointing toward the hill.
 
 ‘Dancing!’ He waved his arms theatrically and dismissively. 
 
@@ -85,7 +87,7 @@ _I’m sorry, Daisy._
 
 ‘You met Corvus already.’ He pointed at the lead raven.
 
-‘Hello, Miss.’ - Corvus The Raven said in that gravelly voice of his. Then cawed, and the murder took flight into the evening sky. Clearly, Corvus shares his master’s penchant for the dramatic. McCoy extended a hand back towards Canton.
+‘Hello, Miss.’ - Corvus The Raven said in that gravelly voice of his. Then cawed, and the murder took flight into the evening sky. Clearly, Corvus shares his master’s penchant for the dramatic. McCoy extended a hand back toward Canton.
 
 ‘Shall we? I will tell you the rest on the way back.’ He started walking, so I joined him, somewhat relaxed. I figured if anything bad was going to happen, he would have done it already. He had every opportunity. And I still had questions.
 
@@ -93,7 +95,7 @@ _I’m sorry, Daisy._
 
 ‘Witch is a term when used when someone, somewhere, somehow goes too far and Salem happens.’ Right, I could see the need for deception. So I asked the question that was on my mind.
 
-‘So which one are you, really? The sombre shaman, the flamboyant eccentric? Maybe the Crusty Wanderer? In my head, I called you Suspect McCoy.’ He laughed at that.
+‘So which one are you, really? The somber shaman, the flamboyant eccentric? Maybe the Crusty Wanderer? In my head, I called you Suspect McCoy.’ He laughed at that.
 
 ‘Yes.’ He paused, as if expecting me to accept that answer, smiling insufferably. 
 
@@ -135,7 +137,7 @@ It felt like home.
 I lay in bed, thinking about the day’s revelations, looking at the wooden ceiling. 
 
 McCoy was right, I didn’t fit, not really. I read too much and I thought about too many things. I had too many opinions. As is, potential husbands never made themselves known. And, being honest with myself, the role of wife held no particular appeal for me. Thinking about it, I was very likely to end up alone and bitter, with how things were going so far.
-s
+
 On the other hand I might be special. And I wanted to be special, in a good way. Not a pariah among peers, the odd one out. It sounded like an adventure. Just like in the books, but mine. I would no longer be living them vicariously. 
 
 But that would mean leaving Dad, and The Principal, at least for a time… And how could I explain it? How do I make it sound acceptable to Dad? Am I ready? Heck, do I even really want it? I didn’t know any of it. 

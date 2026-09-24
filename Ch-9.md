@@ -29,17 +29,17 @@ She didn’t look very happy to see me.
 
 'I'll just grab a book to read and I will be out of your hair.' 
 
-I moved in quickly, trying to find something interesting and leave. There was a full shelf of The Merry Bunch, with a few I haven't read yet. Easy choice.
+I moved in quickly, trying to find something interesting and leave. There was a full shelf of The Merry Bunch, with a few I hadn't read yet. "Dark Red Thirst" it is.
 
 'You like them too, huh?' The storm cloud that was Tiffany's face brightened up a bit.
 
-'It's my favourite light read, even though Dad says they're silly.'
+'It's my favorite light read, even though Dad says they're silly.'
 
 'So what? They end well, and that's what I want from them. Have you read the practical advice at the back?'
 
 'I have. It's wild hocus-pocus, written to be entertaining in the same vein as the story.'
 
-'Mhm.' She grunted noncommitally. I took that as my cue to leave.
+'Mhm.' She grunted noncommittally. I took that as my cue to leave.
 
 <center>----------</center><br>
 

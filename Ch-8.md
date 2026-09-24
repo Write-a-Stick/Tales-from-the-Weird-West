@@ -43,11 +43,11 @@ _So God and demons exist... Oooohkayyyyy..._
 
 Then there was black.
 
-They were very serious when they mentioned black. These two aren't serious often, that in of itself was chilling.
+They were very serious when they mentioned black. These two aren't serious often, that in and of itself was chilling.
 
 'Black is the color of ancient, indescribable creatures born of the Abyss between worlds. If you see black, run.'
 
-Finally, they explained me, to me. Apparently, I could do all sorts of things, but they all have to be rooted and connected to a memory, a very emotional one.
+Finally, he explained me, to me. Apparently, I could do all sorts of things, but they all have to be rooted and connected to a memory, a very emotional one.
 
 'You don't learn new spells like we do. They sort of happen to you. If you make yourself feel that again, the spell will work. Mind, this is book knowledge on a very obscure topic.'
 
