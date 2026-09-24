@@ -43,7 +43,7 @@ _So God and demons exist... Oooohkayyyyy..._
 
 Then there was black.
 
-They were very serious when they mentioned black. These two aren't serious often, that in of itself was chilling.
+They were very serious when they mentioned black. These two aren't serious often, that in and of itself was chilling.
 
 'Black is the color of ancient, indescribable creatures born of the Abyss between worlds. If you see black, run.'
 

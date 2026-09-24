@@ -66,7 +66,7 @@ Dad now thought I was here for school, and I couldn’t tell him the truth. It w
 
 _It’s hard, but as long as I don’t cheat and lie for my own benefit… I can live with that. It’s just better this way._
 
-Now that I knew Dad is going to be fine and himself, I had questions. So I went to find answers. The answers sat down with a bottle of whisky and a snarky attitude.
+Now that I knew Dad is going to be fine and himself, I had questions. So I went to find answers. The answers sat down with a bottle of whiskey and a snarky attitude.
 
 ‘Emma.’
 
@@ -141,9 +141,9 @@ We sat down, the box on the table. With a gaudy flourish, he removed the cloth, 
 
 ‘Bwaa?! Pock. Pock bwaak…’
 
-Somehow, You Bastard looked sad. It drooped it’s head, his comb flopping to the side as it sat down, resigned. My heart broke, he looked so sad. I never really hated him, he was just… annoying. 
+Somehow, You Bastard looked sad. It drooped its head, his comb flopping to the side as it sat down, resigned. My heart broke, he looked so sad. I never really hated him, he was just… annoying. 
 
-‘Awwww…’ I couldn’t help it, I reached my hand into the cage and pet his head a few times. You Bastard gave me the cold shoulder, but didn’t peck or startle.
+‘Awwww…’ I couldn’t help it, I reached my hand into the cage and petted his head a few times. You Bastard gave me the cold shoulder, but didn’t peck or startle.
 
 ‘There, it’s ok… I don’t hate you. Not really. Not after the mornings, anyway.’
 
@@ -155,13 +155,13 @@ _This is the moment. Truth? No. Misdirection? Misdirection._
 
 ‘Good Morning Mr. McCoy. Why are you here?’ He sat down at the table with us.
 
-‘I was in still in Canton, when I noticed your friend there looked sad, all on his own. So I brought him over. Look how happy he is to see your daughter!’ Dad thought for a moment.
+‘I was still in Canton, when I noticed your friend there looked sad, all on his own. So I brought him over. Look how happy he is to see your daughter!’ Dad thought for a moment.
 
 ‘He always did like you more than anyone else…’ _Oh God, he’s considering it._ ‘I’ll get a new one, if you want to keep him with you?’ You Bastard looked at me with hope in his beady eyes.
 
 ‘How is this going to go with the…school?’ I asked. And hated myself a little bit for it.
 
-‘No issue, we make allowances for pets. We’re very forward thinking. We think pets are important for student’s development. Some have horses. Others have chickens.’ He shrugged like was normal and obvious.
+‘No issue, we make allowances for pets. We’re very forward thinking. We think pets are important for a student’s development. Some have horses. Others have chickens.’ He shrugged like it was normal and obvious.
 
 ‘Mr. McCoy, you never said you were part of the school.’ Dad was suspicious.
 
@@ -177,7 +177,7 @@ My breath hitched. McCoy, on the other hand, didn’t even blink.
 
 ‘I can sell, reopen here…’ Dad tried.
 
-‘No, conflict of interest. My friend has a pub here, you would be in direct competition.’
+‘No, conflict of interest. My friend has a saloon here, you would be in direct competition.’
 
 Dad looked at me and took a breath.
 

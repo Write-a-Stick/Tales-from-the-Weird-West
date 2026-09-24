@@ -21,7 +21,7 @@ She finished the glass, turned and set two low-balls with ice between us. She po
 
 ‘To his strength.’ We downed it.
 
-I reached to pay, just what you do. Bonnie raised a judgemental eyebrow.
+I reached to pay, just what you do. Bonnie raised a judgmental eyebrow.
 
 ‘You know better.’
 

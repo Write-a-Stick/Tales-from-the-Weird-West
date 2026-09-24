@@ -9,7 +9,7 @@ We kept a companionable silence that is only possible when working with someone 
 
 Once we were done, we sat down with hot coffee and I readied myself for the difficult conversation ahead.
 
-‘Dad, I thought some, and I wanted to speak to you about something.’ I started.
+‘Dad, I've been thinking, and I wanted to speak to you about something.’ I started.
 
 ‘No good news has ever been delivered that way. Tear that bandage off.’ He chuckled. ‘Lay it on me.’ 
 
@@ -26,7 +26,7 @@ Once we were done, we sat down with hot coffee and I readied myself for the diff
 
 He leaned forward, resting his elbows on the table. That was his tell he was listening, really listening.
 
-‘I remember that solemn promise I made, even if it looked silly to you. Just because I was six when I made it, doesn’t make it any less worth keeping. With all seriousness of that tiny me:’ 
+‘I remember that solemn promise I made, even if it looked silly to you. Just because I was six when I made it, doesn’t make it any less worth keeping. With all the seriousness of that tiny me:’ 
 
 I took a breath and looked him in the eyes. 
 
@@ -34,7 +34,7 @@ I took a breath and looked him in the eyes.
 
 _There it is, making Dad choose between what he knows to be true and calling me a liar or being forced to accept what I said._
 
-He closed his eyes, thinking for a moment, took a couple long and slow breaths. When his eyes opened, there were tears. I was stunned. 
+He closed his eyes, thinking for a moment, took a couple of long and slow breaths. When his eyes opened, there were tears. I was stunned. 
 
 _Dad doesn’t cry._ 
 
@@ -142,11 +142,11 @@ On reaching the second floor gallery, I glanced down to see what was going on. D
 
 It was high time I figured out what was really happening. I had questions. I took the stairs down, hugged Dad and walked to McCoy’s table. As I was closing the short distance, three pairs of piercing eyes watched me. It was eerie, and felt like they were looking at my soul. 
 
-Miss Ellison, unlike her usual, was wearing a flashy wine coloured dress, a bit asian in style, with silvery flower patterns tastefully sprinkled thoughout. It had a big cleavage and a split up to mid-thigh. Normally, it would be vulgar, but she somehow made it look dignified and powerful. Raven black hair flowed down her shoulders and framed her features, makeup and silver jewellery discreetly highlighting the ensemble. 
+Miss Ellison, unlike her usual, was wearing a flashy wine colored dress, a bit asian in style, with silvery flower patterns tastefully sprinkled thoughout. It had a big cleavage and a split up to mid-thigh. Normally, it would be vulgar, but she somehow made it look dignified and powerful. Raven black hair flowed down her shoulders and framed her features, makeup and silver jewellery discreetly highlighting the ensemble. 
 
 Jim was wearing a black suit and crisp white shirt, instead of his usual trousers, suspenders and worn flannel. Clean and simple. 
 
-McCoy in his usual, which suprisingly tastefully matched Miss Ellison’s colours. _Ah._
+McCoy in his usual, which suprisingly tastefully matched Miss Ellison’s colors. _Ah._
 
 McCoy extended a hand and moved a chair for me to sit. 
 

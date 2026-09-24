@@ -3,21 +3,21 @@
 <h3>Friends of friends?</h3>
 </center>
 
-The cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you travelled at their base. Towns, flatlands, deserts - it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
+The cross-country rail journey to Tucson was long and uneventful, but we did get to see a lot of beauty along the way and go there in comfort. There were forests and snowy hills. Mountains that seemed to poke the sky, when you traveled at their base. Towns, flatlands, deserts - it all came and went with the mechanical clatter of steel on steel. Dad and I got a cabin with two beds. Nothing fancy, but clean and spacious, for what it was.  
 
 Thinking about it reminded me yet again of The Principal. It was home, and it was very far away now. We shut the doors, hired a guard and posted notice that we would reopen in two weeks. It felt like betrayal, somehow. Just as I was considering if The Principal could have feelings, our destination came into view ahead.
 
 From afar you could see smoke from a few factory stacks, rising into the late morning sky. There was no snow, and it was comparatively warm, considering the weather back in Ohio. The station wasn’t on the edge of town, meaning Tucson grew enough to claim the space around it. I never expected that penny dreadful tidbit to ever come in handy.
 
-We booked lodgings in a hotel called ‘The Winchester’. It was smaller than The Principal, felt different, smelled different, but it was a good standard all the same. We dressed down for the weather and went looking.
+We booked lodgings in a hotel called ‘The Winchester’. It was smaller than The Principal, felt different, smelled different, but it was nice enough. We dressed down for the weather and went looking.
 
-Before he left, McCoy told us to check a local saloon called ‘Utopia’. Following some directions, we passed Main Street, all columns and fancy, wrought fences. It was the proud civic centre of Tucson. Pretty, but not where we needed to be. We went by, to the end of a side street, where Utopia was sat on the corner. Couldn’t miss it, for the large, shiny sign extending over the street. Right under, there was a cart with ‘Ice Cream 1-10c’ written over a small open window. I wanted ice cream, suddenly. 
+Before he left, McCoy told us to check a local saloon called ‘Utopia’. Following some directions, we passed Main Street, all columns and fancy, wrought fences. It was the proud civic center of Tucson. Pretty, but not where we needed to be. We went by, to the end of a side street, where Utopia sat on the corner. Couldn’t miss it, for the large, shiny sign extending over the street. Right under, there was a cart with ‘Ice Cream 1-10c’ written over a small open window. I wanted ice cream, suddenly. 
 
 ‘Dad?’ I asked, glancing at the cart.
 
 ‘Can you get me vanilla? I’ll sit down, clean a spot, we can eat in peace.’
 
-He went in the direction of a nearby bench, I took my place in the queue. An older woman in fashionable and expensive clothing was right behind me. Once it was my turn, I turned to order, when my breath hitched at what I saw through the small window. A black man was sitting inside, dressed in a white shirt and overalls. The shirt’s right sleeve was tied over the elbow into a knot. What was disturbing was the one-eyed glance from under horrible burn scars on his face. I almost screamed right then. 
+He went in the direction of a nearby bench, I took my place in line. An older woman in fashionable and expensive clothing was right behind me. Once it was my turn, I turned to order, when my breath hitched at what I saw through the small window. A black man was sitting inside, dressed in a white shirt and overalls. The shirt’s right sleeve was tied over the elbow into a knot. What was disturbing was the one-eyed glance from under horrible burn scars on his face. I almost screamed right then. 
 
 Was I the only one seeing this? No one before me seemed to notice, there didn’t seem to be any reaction at all from the people in front of me.
 
@@ -25,9 +25,9 @@ Was I the only one seeing this? No one before me seemed to notice, there didn’
 
 ’Four cents please, Miss’, I paid and turned to leave, when the older woman started tapping her cane on the side of the cart.
 
-‘Billy! This is terrible service! I’m standing here and you’re in there, sitting, making me wait! I come here every day! At the exact same time!’ I looked at the scene incredulous, no one else saying anything.
+‘Billy! This is terrible service! I’m standing here and you’re in there, sitting, making me wait! I come here every day! At the exact same time!’ I looked at the scene, incredulous, no one else saying anything.
 
-‘Coming, Mrs. Doolan! There you go Mrs. Doolan! That will be 10 cents, Mrs. Doolan!’ Billy replied and passed a chocolate ice cream with colourful sprinkles. I did not punch the woman only because of her age.
+‘Coming, Mrs. Doolan! There you go Mrs. Doolan! That will be 10 cents, Mrs. Doolan!’ Billy replied and passed a chocolate ice cream with colorful sprinkles. I did not punch the woman only because of her age.
 
 ‘Thank you, Dearie.’ She smiled warmly at the little window. _What is happening?!_ 
 
@@ -41,15 +41,15 @@ I specifically avoided thinking about the whole exchange and brought over the tr
 
 ‘Some old woman berated the man inside, he gave her a usual order, she thanked him politely for the exchange and left. Weird.’
 
-On reflection, why did this seem to have “McCoy was here” written in invisible ink all over it? I startled and looked after the woman, but she was already gone. We finished quietly, it was good, not too sweet and full of flavour.
+On reflection, why did this seem to have “McCoy was here” written in invisible ink all over it? I startled and looked after the woman, but she was already gone. We finished quietly, it was good, not too sweet and full of flavor.
 
-In slightly better spirits, we approached the entrance to Utopia. It was a perfectly normal door to a large brick building. I braced myself and went in. I wasn’t disappointed to see the open space with a central bar, various pipes of unknown function running above and behind it. Electric lights ready to light up the room, especially frequent around the elevated stage in the corner. Missing was the usual auto-piano and spitoons. 
+In slightly better spirits, we approached the entrance to Utopia. It was a perfectly normal door to a large brick building. I braced myself and went in. I wasn’t disappointed to see the open space with a central bar, various pipes of unknown function running above and behind it. Electric lights ready to light up the room, especially frequent around the elevated stage in the corner. Missing was the usual auto-piano and spittoons. 
 
 Behind the bar, a tall, Caribbean-looking woman was slowly polishing glasses while staring into space. The traditional pastime of bored bartenders everywhere. Despite the oddness, this place was a saloon, and I know my way around one. I approached the bar and ordered.
 
 ‘Good afternoon, can I please get an Atherton for my Dad and a white Riesling for myself?’ I full well know it’s great practice to be polite to serving staff. Dad also likes Old Crow, but due to recent events I figured he wouldn’t want one. Just a hunch.
 
-‘Ice in both, Miss?’ They had ice. And threw it into drinks in some odd corner pub? No, of course they did. 
+‘Ice in both, Miss?’ They had ice. And threw it into drinks in some odd corner place? No, of course they did. 
 
 Odd is normal now.
 
@@ -71,7 +71,7 @@ Dad leaned on the bar next to me, watching and not interrupting. Which was curio
 
 ‘That friend got a name?’ Their eyebrows were having a separate conversation altogether, but I was never quite fluent in browish.
 
-‘McCoy. Decker McCoy.’ A wide grin appeared on Bonnie’s face. The kind that likes to watch burning buildings, while roasting marshmellows and whistling quietly. She went in the back without a word, then returned to her post.
+‘McCoy. Decker McCoy.’ A wide grin appeared on Bonnie’s face. The kind that likes to watch burning buildings, while roasting marshmallows and whistling quietly. She went in the back without a word, then returned to her post.
 
 ‘He’ll be with you in a minute.’
 
@@ -81,7 +81,7 @@ True to her word, not long after a man came out of the same door. Around thirty,
 
 _What sort of insanity is Decker McCoy is up to for these people to react this way?_
 
-We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whisky. The man took out and shuffled a deck of cards one-handed in a practiced, habitual motion. Didn't look at it once.
+We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whiskey. The man took out and shuffled a deck of cards one-handed in a practiced, habitual motion. Didn't look at it once.
 
 ‘Travis J. Hanlon, definitely not pleased to make your acquaintance. ’ _Rude._
 
@@ -95,7 +95,7 @@ We sat down at a secluded table. Bonnie brought our drinks, and a bottle of whis
 
 ‘I know, it’s funny.’ He straightened himself. 
 
-‘I am sorry. You didn’t deserve this. I’ve just had it up to here with McCoy dumping his problems on me.’ He relaxed onto the backrest, took a swig of whisky. ‘I apologize for my behaviour. Travis Hanlon, pleased to meet you, Miss…’ 
+‘I am sorry. You didn’t deserve this. I’ve just had it up to here with McCoy dumping his problems on me.’ He relaxed onto the backrest, took a swig of whiskey. ‘I apologize for my behaviour. Travis Hanlon, pleased to meet you, Miss…’ 
 
 ‘Emma Coates. Likewise.’ We shake hands.
 
