@@ -162,7 +162,7 @@ Somehow, You Bastard looked sad. He drooped his head, comb flopping to the side 
 
 My heart broke, he looked so sad. I never really hated him, he was just... annoying. "Awwww..." I couldn't help it, I reached my hand into the cage and petted his head a few times. You Bastard gave me the cold shoulder, but didn't peck or startle.
 
-"There, it's ok… I don't hate you. Not really. Not after the mornings, anyway."
+"There, it's ok... I don't hate you. Not really. Not after the mornings, anyway."
 
 The door opened and I froze. Dad came back. Chicken. McCoy. 
 
