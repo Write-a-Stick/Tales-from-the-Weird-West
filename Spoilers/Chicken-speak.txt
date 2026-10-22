@@ -1,9 +1,15 @@
 Bwaaak = Hello / Good
 
-Cabwaak = Huh?What?
+Cabwaak? = Huh? What?
 
 Pock = Feeling
 
 BWAAAK! = Attack! / Bad!
 
 Bock bock! = OK! / Yes
+
+Bock Cadaaa = No
+
+Boot boot prr = Flock
+
+Dak Dak = Song
